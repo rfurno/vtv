@@ -1,16 +1,16 @@
-# Silent Pillars of Ancestral Human Intelligence: Sifu-Todai and Guru-Shishya Bonds
+# Silent Pillars of Ancestral Human Intelligence: Sifu-Todai and Acharya-Shishya Bonds
 
 **By Renato Almeida **
 
 I still remember the weight of silence in the training hall—the kind where words are sparing and every gesture carries centuries of transmitted knowledge. Years later, sitting in silence and anticipating the arrival of my Vedanta teacher, the focused presence lingering from japa mala practice moments earlier, I felt something strikingly similar. Not the same, but resonant. Both moments revealed a kind of learning that goes far deeper than information.
 
-This is why I’m launching this Substack: to explore how ancestral systems of human intelligence still speak to us today. Not as relics, but as living pillars that challenge our fast, fragmented ways of knowing. For this first post, I want to contemplate two profound teacher-student relationships—the Sifu-Todai bond in Chinese martial traditions and the Guru-Shishya bond in Indian spiritual lineages—without tracing direct parallels. Instead, I invite you to join me in contemplating these shared foundations — not to reach final answers, but to spark questions, reflection, and the deeper introspection these ancestral paths encourage.
+This is why I’m launching this Substack: to explore how ancestral systems of human intelligence still speak to us today. Not as relics, but as living pillars that challenge our fast, fragmented ways of knowing. For this first post, I want to contemplate two profound teacher-student relationships—the Sifu-Todai bond in Chinese martial traditions and the Acharya-Shishya bond in Indian spiritual lineages—without tracing direct parallels. Instead, I invite you to join me in contemplating these shared foundations — not to reach final answers, but to spark questions, reflection, and the deeper introspection these ancestral paths encourage.
 
 ## The Quiet Architecture of Each Bond
 
 In the Sifu-Todai relationship, the Sifu is more than an instructor. He or she is a guardian of a living lineage, responsible for shaping not just technical skill but character, ethics, and resilience. The Todai enters with commitment, often staying for years or a lifetime, absorbing through observation, repetition, and correction. Knowledge passes through the body as much as through words—forms practiced thousands of times until they become instinct.
 
-In the Guru-Shishya tradition, the Guru embodies realized wisdom, and the Shishya approaches with surrender and intense seeking. This is a sacred transmission (parampara) where the student’s inner transformation matters more than intellectual accumulation. The relationship often unfolds through service, listening, and a gradual dissolution of ego, allowing deeper understanding to flower.
+In the Acharya-Shishya tradition, the Guru embodies realized wisdom, and the Shishya approaches with surrender and intense seeking. This is a sacred transmission (parampara) where the student’s inner transformation matters more than intellectual accumulation. The relationship often unfolds through service, listening, and a gradual dissolution of ego, allowing deeper understanding to flower.
 
 Both traditions operate outside modern credentials or scalable courses. They are intimate, demanding, and profoundly human.
 
