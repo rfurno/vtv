@@ -2,7 +2,7 @@
 
 **By Renato Almeida**
 
-I still remember the weight of silence in the training hall — the kind where words are sparing and every gesture carries centuries of transmitted knowledge. Years later, sitting in silence and anticipating my Vedanta teacher — the focused presence from japa mala practice still lingering — I felt something strikingly similar. Not the same, but resonant. Both moments revealed a kind of learning that goes far deeper than information.
+I still remember the weight of silence in the training hall — the kind where words are sparing and every gesture carries centuries of transmitted knowledge. Years later, sitting in silence and anticipating my Vedanta teacher — the focused presence from _japa mala_ still lingering — I felt something strikingly similar. Not the same, but resonant. Both moments revealed a kind of learning that goes far deeper than information.
 
 This is why I’m launching this Substack: to explore how ancestral systems of human intelligence still speak to us today. Not as relics, but as living pillars that challenge our fast, fragmented ways of knowing. For this first post, I want to contemplate two profound teacher-student relationships — the Sifu-Todai bond and the Acharya-Shishya bond — without drawing direct parallels. Instead, I invite you to join me in contemplating their shared foundations, not to reach final answers, but to spark questions and deeper introspection.
 
@@ -35,14 +35,13 @@ On the teacher’s side, I’ve witnessed the quiet burden Leo and Jonas carry: 
 
 **4. Lifelong Lineage and Practice**
 
-I’m reminded every day that mastery is never declared — it unfolds slowly over decades. Both Leo and Jonas have placed me inside something much larger than myself: a living chain of practitioners stretching backward and forward in time. My daily practice — whether training forms with Leo or the steady study and contemplation with Jonas — has quietly become a devotion that sharpens not only my skill but my presence and wisdom. I still feel like I’m only at the very beginning of this ancient river.
+I’m reminded every day that mastery is never declared — it unfolds slowly over decades. Both Leo and Jonas have placed me inside something much larger than myself: a living chain of practitioners stretching backward and forward in time. My daily practice — whether training forms with Leo or the steady study and contemplation with Jonas — has quietly become a devotion that sharpens not only my skill but my presence and wisdom. I still sense like I’m only at the very beginning of this ancient river.
 
 These four pillars are not identical between the two traditions, yet I keep discovering how deeply they echo something universal — the way humans have always passed on their highest knowing when they truly commit to another person.
 
-
 ## Why This Matters Now
 
-Every time I get pulled into TikTok life hacks and YouTube “how to fix your life” videos, I feel how quickly I lose the patient depth these relationships require. How many times have I felt overwhelmed by incoherent fragments — or outright misinformation — while racing on a fast train of FOMO and algorithms engineered for likes and shares, barely keeping my head above water as real connections slowly drown in the noise.
+Every time I get pulled into TikTok life hacks and YouTube “how to fix your life” videos, I feel how quickly I lose the demanding depth these relationships require. How many times have I felt overwhelmed by incoherent fragments — or outright misinformation — while racing on a fast train of FOMO and algorithms engineered for likes and shares, barely keeping my head above water as real connections slowly drown in the noise.
 
 Contemplating these ancestral models invites me to ask: Where has the hunger for speed and validation left me shallower or more isolated? Who have I studied under in a way that truly changed me? Where do I still need deeper, more accountable learning?
 
