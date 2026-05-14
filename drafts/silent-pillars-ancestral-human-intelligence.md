@@ -17,8 +17,6 @@ I had a Sifu and an Acharya step into my life thirty-five years apart to the mon
 
 ## Shared Pillars of Ancestral Intelligence
 
-## Shared Pillars of Ancestral Intelligence
-
 **1. Intimate, Living Transmission**
 
 I’ve experienced how certain knowledge travels best from person to person. Nuance, timing, and unspoken insight simply resist books or videos. I still remember Leo correcting my stance with a single touch, or Jonas offering one phrase that quietly shifted my perception. This direct line preserves fidelity across generations in ways I continue to marvel at.
