@@ -17,23 +17,29 @@ I had a Sifu and an Acharya step into my life thirty-five years apart to the mon
 
 ## Shared Pillars of Ancestral Intelligence
 
-**1. Intimate, Living Transmission**  
+## Shared Pillars of Ancestral Intelligence
+
+**1. Intimate, Living Transmission**
+
 I’ve experienced how certain knowledge travels best from person to person. Nuance, timing, and unspoken insight simply resist books or videos. I still remember Leo correcting my stance with a single touch, or Jonas offering one phrase that quietly shifted my perception. This direct line preserves fidelity across generations in ways I continue to marvel at.
 
-**2. Personal Transformation Over Transaction**  
+**2. Personal Transformation Over Transaction**
+
 In both relationships, learning was never just about acquiring skills — it remade *me*. With Leo, one of the hardest moments came when he had me strike a partner standing completely open, offering no defense. It felt wrong. I had to face my own hesitation and discomfort head-on.  
 
 With Jonas the challenge was subtler: instead of raging against wars and evil in the world, he invited me to contemplate the swamp inside my own mind — all the resentment, judgment, and unexamined reactions I preferred to ignore. Humility, perseverance, and ethical grounding became daily requirements. The depth demanded real, often uncomfortable change — a contrast I’m still living today.
 
-**3. Devotion and Responsibility**  
+**3. Devotion and Responsibility**
+
 I’ve felt the weight of this in both directions. As a student, devotion has meant showing up day after day — even when it meant sitting on camera for a remote class instead of doing the dishes or sipping a cappuccino on the couch. It has meant respecting the lineage and swallowing my ego when the practice felt inconvenient.  
 
 On the teacher’s side, I’ve witnessed the quiet burden Leo and Jonas carry: protecting the tradition, modeling integrity, and guiding with care (sometimes sternly) because they see further than I do. The relationship only works when both sides accept this mutual weight. It’s heavier than I expected — and more beautiful.
 
-**4. Lifelong Lineage and Practice**  
+**4. Lifelong Lineage and Practice**
+
 I’m reminded every day that mastery is never declared — it unfolds slowly over decades. Both Leo and Jonas have placed me inside something much larger than myself: a living chain of practitioners stretching backward and forward in time. My daily practice — whether training forms with Leo or the steady study and contemplation with Jonas — has quietly become a devotion that sharpens not only my skill but my presence and wisdom. I still feel like I’m only at the very beginning of this ancient river.
 
-These pillars are not identical across cultures, yet they point to something universal in how humans have reliably passed on their highest knowing.
+These four pillars are not identical between the two traditions, yet I keep discovering how deeply they echo something universal — the way humans have always passed on their highest knowing when they truly commit to another person.
 
 ## Why This Matters Now
 
