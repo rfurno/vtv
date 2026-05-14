@@ -50,7 +50,7 @@ I don’t offer answers or “how-to” lists here — only an invitation to ref
 
 ---
 
-What comes next on this Substack? More explorations of ancestral knowledge systems, personal experiments in deeper learning, reflections on lineage in the modern world, and — most importantly — your stories and questions.
+What comes next on this Substack? More explorations of ancestral knowledge from [Vedanta](https://vedanta.com.br/en), [Ving Tsun](https://institutemoyyat.org/), Kung Fu, personal experiments in deeper learning, reflections on lineage in the modern world, and — most importantly — your stories and questions.
 
 If this resonates, I’d love to hear from you in the comments. What teacher-student experiences have shaped you? Which pillars feel most alive or missing in your own path?
 
