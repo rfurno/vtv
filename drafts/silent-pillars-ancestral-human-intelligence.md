@@ -19,7 +19,7 @@ I had a Sifu and an Acharya step into my life thirty-five years apart to the mon
 
 **1. Intimate, Living Transmission**
 
-Certain knowledge travels best from person to person. Nuance, timing, and unspoken insight resist books or videos. The Sifu corrects a stance with a touch; the Acharya offers a single phrase that shifts perception. This direct line preserves fidelity across generations.
+I’ve experienced how certain knowledge travels best from person to person. Nuance, timing, and unspoken insight simply resist books or videos. I still remember Leo correcting my stance with a single touch, or Jonas offering one phrase that quietly shifted my perception. This direct line preserves fidelity across generations in ways I continue to marvel at.
 
 **2. Personal Transformation Over Transaction**
 
@@ -29,7 +29,7 @@ With Jonas the challenge was subtler: instead of raging against wars and evil in
 
 **3. Devotion and Responsibility**  
 
-I’ve felt the weight of this in both directions. As a student, devotion has meant showing up day after day — even when it looked like sitting on camera for a remote class instead of doing the dishes or comfortably sipping a cappuccino on the couch. It has meant respecting the lineage and swallowing my ego when the practice felt boring, difficult, or inconvenient.
+I’ve felt the weight of this in both directions. As a student, devotion has meant showing up day after day — even when it meant sitting on camera for a remote class instead of doing the dishes or sipping a cappuccino on the couch. It has meant respecting the lineage and swallowing my ego when the practice felt inconvenient.
 
 On the teacher’s side, I’ve witnessed the quiet burden Leo and Jonas carry: protecting the tradition, modeling integrity, and guiding with care (sometimes sternly) because they see further than I do. The relationship only works when both sides accept this mutual weight. It’s heavier than I expected — and more beautiful.
 
