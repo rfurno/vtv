@@ -8,7 +8,7 @@ This is why I’m launching this Substack: to explore how ancestral systems of h
 
 ## The Quiet Architecture of Each Bond
 
-In the Sifu-Todai relationship, the Sifu is far more than a teacher of techniques. When I first met Leo Imamura in February 1989 and later became his disciple, I stepped into a living lineage where he would shape not only technique but character, ethics, and resilience. Decades on, I continue learning from him — sharing life’s moments while he became the father of my nephew and niece. Here, knowledge travels through the body as much as through words: forms practiced thousands of times until instinct awakens, lessons absorbed through presence, correction, and lifelong commitment.
+In the Sifu-Todai relationship, the Sifu is far more than a teacher of techniques. When I first met Leo Imamura in February 1989 and later became his disciple, I stepped into a living lineage where he would shape not only technique but character, ethics, and resilience. Decades on, I continue learning from him — sharing life’s moments as he later became the father of my nephew and niece. Here, knowledge travels through the body as much as through words: forms practiced thousands of times until instinct awakens, lessons absorbed through presence, correction, and lifelong commitment.
 
 In the Acharya-Shishya tradition, the Acharya embodies realized wisdom, and the Shishya approaches with surrender and intense seeking. This is a sacred transmission (parampara) where the student’s inner transformation matters more than intellectual accumulation. The relationship often unfolds through service, listening, and a gradual dissolution of ego, allowing deeper understanding to flower.
 
