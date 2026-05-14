@@ -42,7 +42,9 @@ These four pillars are not identical between the two traditions, yet I keep disc
 
 ## Why This Matters Now
 
-In an age of abundant information and algorithmic recommendations, we risk losing the friction and depth these relationships demand. Self-taught everything sounds empowering until we notice the loneliness or shallowness it can breed. Contemplating these ancestral models invites us to ask: Where in our lives might we benefit from slower, deeper, more accountable learning? Who have we studied under in a way that truly changed us? Where might we seek or become that kind of guide?
+In an age of endless TikTok life hacks and YouTube “how to fix your life” videos, we risk losing the patient, demanding depth these relationships require. How many times have I felt overwhelmed by incoherent fragments — or outright misinformation — while racing on a fast train of FOMO and algorithms engineered for likes and shares, barely keeping my head above water as real connections slowly drown in the noise.
+
+Contemplating these ancestral models invites me to ask: Where has the hunger for speed and validation left me shallower or more isolated? Who have I studied under in a way that truly changed me? Where do I still need deeper, more accountable learning?
 
 I don’t offer answers or “how-to” lists here — only an invitation to reflect. True intelligence, these traditions suggest, often grows in the space between two committed human beings.
 
