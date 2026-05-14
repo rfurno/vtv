@@ -42,7 +42,7 @@ These four pillars are not identical between the two traditions, yet I keep disc
 
 ## Why This Matters Now
 
-Every time I get pulled into TikTok life hacks and YouTube “how to fix your life” videos, I realize how quickly I lose touch with the patient, demanding depth these relationships require. How many times have I felt overwhelmed by incoherent fragments — or outright misinformation — while racing on a fast train of FOMO and algorithms engineered for likes and shares, barely keeping my head above water as real connections slowly drown in the noise.
+Every time I get pulled into TikTok life hacks and YouTube “how to fix your life” videos, I feel how quickly I lose the patient depth these relationships require. How many times have I felt overwhelmed by incoherent fragments — or outright misinformation — while racing on a fast train of FOMO and algorithms engineered for likes and shares, barely keeping my head above water as real connections slowly drown in the noise.
 
 Contemplating these ancestral models invites me to ask: Where has the hunger for speed and validation left me shallower or more isolated? Who have I studied under in a way that truly changed me? Where do I still need deeper, more accountable learning?
 
@@ -50,9 +50,9 @@ I don’t offer answers or “how-to” lists here — only an invitation to ref
 
 ---
 
-What comes next? More explorations of ancestral knowledge systems (Vedanta, Ving Tsun, Kung Fu), personal experiments in deeper learning, reflections on lineage in the modern world — and, most importantly, your stories and questions.
+What comes next? More explorations of Vedanta, Ving Tsun, Kung Fu, personal experiments in deeper learning, reflections on ancestral traditions in the modern world — and, most importantly, **your** stories and questions.
 
-If this resonates, I’d love to hear from you in the comments. What teacher-student experiences have shaped you? Which pillars feel most alive or missing in your own path?
+I’d love to hear from you in the comments. Which pillars feel most alive or missing in your own path?
 
 Thank you for joining me at the beginning. Subscribe for free (or paid, if you’d like to support this work) and let’s walk this path together.
 
