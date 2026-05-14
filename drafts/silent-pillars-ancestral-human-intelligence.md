@@ -8,22 +8,22 @@ This is why I’m launching this Substack: to explore how ancestral systems of h
 
 ## The Quiet Architecture of Each Bond
 
-In the Sifu-Todai relationship, the Sifu is more than an instructor. He or she is a guardian of a living lineage, responsible for shaping not just technical skill but character, ethics, and resilience. The Todai enters with commitment, often staying for years or a lifetime, absorbing through observation, repetition, and correction. Knowledge passes through the body as much as through words—forms practiced thousands of times until they become instinct.
+In the Sifu-Todai relationship, the Sifu is far more than a teacher of techniques. When I first met Leo Imamura in February 1989 and later became his disciple, I stepped into a living lineage where he would shape not only technique but character, ethics, and resilience. Decades on, I continue learning from him — sharing life’s moments while he became the father of my nephew and niece. Here, knowledge travels through the body as much as through words: forms practiced thousands of times until instinct awakens, lessons absorbed through presence, correction, and lifelong commitment.
 
-In the Acharya-Shishya tradition, the Guru embodies realized wisdom, and the Shishya approaches with surrender and intense seeking. This is a sacred transmission (parampara) where the student’s inner transformation matters more than intellectual accumulation. The relationship often unfolds through service, listening, and a gradual dissolution of ego, allowing deeper understanding to flower.
+In the Acharya-Shishya tradition, the Acharya embodies realized wisdom, and the Shishya approaches with surrender and intense seeking. This is a sacred transmission (parampara) where the student’s inner transformation matters more than intellectual accumulation. The relationship often unfolds through service, listening, and a gradual dissolution of ego, allowing deeper understanding to flower.
 
 Both traditions operate outside modern credentials or scalable courses. They are intimate, demanding, and profoundly human.
 
 ## Shared Pillars of Ancestral Intelligence
 
 **1. Intimate, Living Transmission**  
-Books, videos, and online modules have their place, but these bonds remind us that certain knowledge travels best from person to person. Nuance, timing, energy, and unspoken insight resist full capture in text. The Sifu corrects a stance with a touch; the Guru offers a single phrase that shifts perception. This direct line preserves fidelity across generations.
+Books, videos, and online modules have their place, but these bonds remind us that certain knowledge travels best from person to person. Nuance, timing, energy, and unspoken insight resist full capture in text. The Sifu corrects a stance with a touch; the Acharya offers a single phrase that shifts perception. This direct line preserves fidelity across generations.
 
 **2. Personal Transformation Over Transaction**  
 Learning here is not about acquiring a skill set for a résumé. It remakes the learner. Humility, patience, perseverance, and ethical grounding become non-negotiable. The student is invited—sometimes required—to change. This depth stands in quiet contrast to today’s emphasis on quick wins and self-directed paths.
 
 **3. Devotion and Responsibility**  
-On the student side: wholehearted commitment, respect for the lineage, and willingness to serve or obey even when it challenges the ego. On the teacher side: profound duty. A Sifu or Guru does not merely dispense knowledge; they protect the tradition, model integrity, and guide with care—sometimes sternly, always with long-term vision. The relationship carries mutual weight.
+On the student side: wholehearted commitment, respect for the lineage, and willingness to serve or obey even when it challenges the ego. On the teacher side: profound duty. A Sifu or Acharya does not merely dispense knowledge; they protect the tradition, model integrity, and guide with care—sometimes sternly, always with long-term vision. The relationship carries mutual weight.
 
 **4. Lifelong Lineage and Practice**  
 Mastery is never declared; it unfolds over decades. Both traditions embed the student in something larger than themselves—a chain of practitioners stretching backward and forward in time. Practice becomes a daily devotion that cultivates not just ability but presence and wisdom.
