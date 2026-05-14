@@ -12,7 +12,8 @@ In the Sifu-Todai relationship, the Sifu is far more than a teacher of technique
 
 In the Acharya-Shishya tradition, the Acharya is far more than a transmitter of knowledge. When I joined my first Vedanta class with Acharya Jonas Masetti in February 2024, I entered a sacred lineage where his questions — sometimes sharper than any punch — would reshape me. More than twenty hours a week of study, deep questioning, and practices like learning ancient languages, singing, and contemplating silence have steadily uncovered my own hidden layers. Here, transformation unfolds through surrender, service, and listening — or at least the attempt at it — in ways I continue to explore and don’t fully grasp yet.
 
-Both traditions operate outside modern credentials or scalable courses. They are intimate, demanding, and profoundly human.
+Both traditions operate outside modern credentials and scalable courses. They are intimate, demanding, and profoundly human.
+I had a Sifu and an Acharya step into my life thirty-five years apart to the month. Looking back, a pattern appears where none was visible at the time — the kind of pattern that makes you suspect the universe does not deal in coincidences, only in deeper wonders we recognize only later.
 
 ## Shared Pillars of Ancestral Intelligence
 
