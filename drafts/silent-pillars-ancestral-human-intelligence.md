@@ -18,15 +18,20 @@ I had a Sifu and an Acharya step into my life thirty-five years apart to the mon
 ## Shared Pillars of Ancestral Intelligence
 
 **1. Intimate, Living Transmission**
+
 Certain knowledge travels best from person to person. Nuance, timing, and unspoken insight resist books or videos. The Sifu corrects a stance with a touch; the Acharya offers a single phrase that shifts perception. This direct line preserves fidelity across generations.
 
 **2. Personal Transformation Over Transaction**
+
 In both relationships, learning was never just about acquiring skills — it remade me. With Leo, one of the hardest moments came when he had me strike a partner standing completely open, offering no defense. It felt wrong. I had to face my own hesitation and discomfort head-on.
 
 With Jonas the challenge was subtler: instead of raging against wars and evil in the world, he invited me to contemplate the swamp inside my own mind — all the resentment, judgment, and unexamined reactions I preferred to ignore. Humility, perseverance, and ethical grounding became daily requirements. The depth demanded real, often uncomfortable change — a contrast I’m still living today.
 
 **3. Devotion and Responsibility**  
-On the student side: wholehearted commitment, respect for the lineage, and willingness to serve or obey even when it challenges the ego. On the teacher side: profound duty. A Sifu or Acharya does not merely dispense knowledge; they protect the tradition, model integrity, and guide with care—sometimes sternly, always with long-term vision. The relationship carries mutual weight.
+
+I’ve felt the weight of this in both directions. As a student, devotion has meant showing up day after day — even when it looked like sitting on camera for a remote class instead of doing the dishes or comfortably sipping a cappuccino on the couch. It has meant respecting the lineage and swallowing my ego when the practice felt boring, difficult, or inconvenient.
+
+On the teacher’s side, I’ve witnessed the quiet burden Leo and Jonas carry: protecting the tradition, modeling integrity, and guiding with care (sometimes sternly) because they see further than I do. The relationship only works when both sides accept this mutual weight. It’s heavier than I expected — and more beautiful.
 
 **4. Lifelong Lineage and Practice**  
 Mastery is never declared; it unfolds over decades. Both traditions embed the student in something larger than themselves—a chain of practitioners stretching backward and forward in time. Practice becomes a daily devotion that cultivates not just ability but presence and wisdom.
