@@ -19,7 +19,7 @@ I had a Sifu and an Acharya step into my life thirty-five years apart to the mon
 
 **1. Intimate, Living Transmission**
 
-I’ve experienced how certain knowledge travels best from person to person. Nuance, timing, and unspoken insight simply resist books or videos. I still remember Leo correcting my stance with a single touch, or Jonas offering one phrase that quietly shifted my perception. This direct line preserves fidelity across generations in ways I continue to marvel at.
+I’ve experienced how certain knowledge travels best from person to person. Nuance, timing, and unspoken insight simply resist books or videos. I still remember Leo correcting my stance with a single touch, or Jonas offering one phrase that quietly shifted my perception. This direct line preserves fidelity across generations in ways I continue to learn from and return to.
 
 **2. Personal Transformation Over Transaction**
 
@@ -38,6 +38,7 @@ On the teacher’s side, I’ve witnessed the quiet burden Leo and Jonas carry: 
 I’m reminded every day that mastery is never declared — it unfolds slowly over decades. Both Leo and Jonas have placed me inside something much larger than myself: a living chain of practitioners stretching backward and forward in time. My daily practice — whether training forms with Leo or the steady study and contemplation with Jonas — has quietly become a devotion that sharpens not only my skill but my presence and wisdom. I still feel like I’m only at the very beginning of this ancient river.
 
 These four pillars are not identical between the two traditions, yet I keep discovering how deeply they echo something universal — the way humans have always passed on their highest knowing when they truly commit to another person.
+
 
 ## Why This Matters Now
 
