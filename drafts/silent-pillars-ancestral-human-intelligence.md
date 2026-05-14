@@ -17,13 +17,13 @@ I had a Sifu and an Acharya step into my life thirty-five years apart to the mon
 
 ## Shared Pillars of Ancestral Intelligence
 
-**1. Intimate, Living Transmission**  
-Certain knowledge travels best from person to person. Nuance, timing, energy, and unspoken insight resist books or videos. The Sifu corrects a stance with a touch; the Acharya offers a single phrase that shifts perception. This direct line preserves fidelity across generations.
+**1. Intimate, Living Transmission**
+Certain knowledge travels best from person to person. Nuance, timing, and unspoken insight resist books or videos. The Sifu corrects a stance with a touch; the Acharya offers a single phrase that shifts perception. This direct line preserves fidelity across generations.
 
-**2. Personal Transformation Over Transaction**  
-In both relationships I’ve experienced, learning was never just about acquiring skills. It remade me. With Leo, one of the hardest moments came when he had me strike a partner who stood completely open, making no attempt to defend himself. It felt wrong. I had to face my own hesitation and discomfort head-on.
+**2. Personal Transformation Over Transaction**
+In both relationships, learning was never just about acquiring skills — it remade me. With Leo, one of the hardest moments came when he had me strike a partner standing completely open, offering no defense. It felt wrong. I had to face my own hesitation and discomfort head-on.
 
-With Jonas, the challenge was subtler but equally demanding. Instead of raging against wars and evil in the world, he invited me to contemplate the swamp inside my own mind — all the resentment, judgment, and unexamined reactions I preferred to ignore. Humility, perseverance, and basic ethical grounding stopped being abstract virtues — they became daily requirements for staying in the relationship. The depth demanded real, often uncomfortable change. This stands in quiet contrast to today’s world of quick wins and self-directed everything. I’m still living that contrast.
+With Jonas the challenge was subtler: instead of raging against wars and evil in the world, he invited me to contemplate the swamp inside my own mind — all the resentment, judgment, and unexamined reactions I preferred to ignore. Humility, perseverance, and ethical grounding became daily requirements. The depth demanded real, often uncomfortable change — a contrast I’m still living today.
 
 **3. Devotion and Responsibility**  
 On the student side: wholehearted commitment, respect for the lineage, and willingness to serve or obey even when it challenges the ego. On the teacher side: profound duty. A Sifu or Acharya does not merely dispense knowledge; they protect the tradition, model integrity, and guide with care—sometimes sternly, always with long-term vision. The relationship carries mutual weight.
