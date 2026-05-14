@@ -1,0 +1,3 @@
+I still remember the weight of silence in the training hall — and years later, the same quiet anticipation while waiting for my Vedanta teacher. Both moments revealed a kind of learning that goes far deeper than information.
+In this first post I explore the Sifu-Todai and Acharya-Shishya relationships — not by drawing direct parallels, but by reflecting on the shared foundations that have sustained deep human knowledge for centuries.
+What does it really mean to learn from another person? Where in our lives might we still need slower, deeper, more accountable relationships?
