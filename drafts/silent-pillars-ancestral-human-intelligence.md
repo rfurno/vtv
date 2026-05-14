@@ -35,13 +35,17 @@ On the teacher’s side, I’ve witnessed the quiet burden Leo and Jonas carry: 
 
 **4. Lifelong Lineage and Practice**
 
-I’m reminded every day that mastery is never declared — it unfolds slowly over decades. Both Leo and Jonas have placed me inside something much larger than myself: a living chain of practitioners stretching backward and forward in time. My daily practice — whether training forms with Leo or the steady study and contemplation with Jonas — has quietly become a devotion that sharpens not only my skill but my presence and wisdom. I still sense like I’m only at the very beginning of this ancient river.
+I’m reminded every day that mastery is never declared — it unfolds slowly over decades. Both Leo and Jonas have placed me inside something much larger than myself: a living chain of practitioners stretching backward and forward in time.
+
+My daily practice — whether training forms with Leo or the steady study and contemplation with Jonas — has quietly become a devotion that sharpens not only my skill but my presence and wisdom. I still feel I’m barely at the beginning of this ancient river.
 
 These four pillars are not identical between the two traditions, yet I keep discovering how deeply they echo something universal — the way humans have always passed on their highest knowing when they truly commit to another person.
 
 ## Why This Matters Now
 
-Every time I get pulled into TikTok life hacks and YouTube “how to fix your life” videos, I feel how quickly I lose the demanding depth these relationships require. How many times have I felt overwhelmed by incoherent fragments — or outright misinformation — while racing on a fast train of FOMO and algorithms engineered for likes and shares, barely keeping my head above water as real connections slowly drown in the noise.
+Every time I get pulled into TikTok life hacks and YouTube “how to fix your life” videos, I realize how quickly I lose the deep, patient presence these relationships require. 
+
+How many times have I felt overwhelmed by incoherent fragments — or outright misinformation? I chase one dopamine hit after another fueled by FOMO, barely keeping my head above water as real connections drown in the noise.
 
 Contemplating these ancestral models invites me to ask: Where has the hunger for speed and validation left me shallower or more isolated? Who have I studied under in a way that truly changed me? Where do I still need deeper, more accountable learning?
 
