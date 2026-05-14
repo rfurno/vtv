@@ -42,7 +42,11 @@ These four pillars are not identical between the two traditions, yet I keep disc
 
 ## Why This Matters Now
 
-In an age of endless TikTok life hacks and YouTube “how to fix your life” videos, we risk losing the patient, demanding depth these relationships require. How many times have I felt overwhelmed by incoherent fragments — or outright misinformation — while racing on a fast train of FOMO and algorithms engineered for likes and shares, barely keeping my head above water as real connections slowly drown in the noise.
+Every time I get inundated in endless TikTok life hacks and YouTube “how to fix your life” videos, I feel how easily I lose touch with the patient, demanding depth these relationships require. How many times have I felt overwhelmed by incoherent fragments — or outright misinformation — while racing on a fast train of FOMO and algorithms engineered for likes and shares, barely keeping my head above water as real connections slowly drown in the noise.
+
+Contemplating these ancestral models invites me to ask: Where has the hunger for speed and validation left me shallower or more isolated? Who have I studied under in a way that truly changed me? Where do I still need deeper, more accountable learning?
+
+I don’t offer answers or “how-to” lists here — only an invitation to reflect. True intelligence, these traditions suggest, often grows in the space between two committed human beings.
 
 Contemplating these ancestral models invites me to ask: Where has the hunger for speed and validation left me shallower or more isolated? Who have I studied under in a way that truly changed me? Where do I still need deeper, more accountable learning?
 
