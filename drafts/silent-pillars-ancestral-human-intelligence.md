@@ -8,17 +8,17 @@ This is why I’m launching this Substack: to explore how ancestral systems of h
 
 ## Presence, Commitment, and Living Lineage
 
-In the Sifu-Todai relationship, the Sifu is far more than a teacher of techniques. When I first met Leo Imamura in February 1989 and later became his disciple, I stepped into a living lineage where he would shape not only technique but character, ethics, and resilience. Decades on, I continue learning from him — sharing life’s moments while he became the father of my nephew and niece. Here, knowledge travels through the body as much as through words: forms practiced thousands of times until instinct awakens, lessons absorbed through presence, correction, and lifelong commitment.
+In the Sifu-Todai relationship, the Sifu is far more than a teacher of techniques. When I first met Leo Imamura in February 1989 and later became his disciple, I stepped into a living lineage where he shaped not only my technique but my character, ethics, and resilience. Decades later I continue learning from him — sharing life’s moments as he became the father of my nephew and niece. Here, knowledge travels through the body as much as through words: forms practiced thousands of times until instinct awakens, lessons absorbed through presence, correction, and lifelong commitment.
 
-In the Acharya-Shishya tradition, the Acharya is far more than a transmitter of knowledge. When I joined my first Vedanta class with Acharya Jonas Masetti in February 2024, I entered a sacred lineage where his questions — sometimes sharper than any punch — would reshape me. More than twenty hours a week of study, deep questioning, and practices like learning ancient languages, singing, and contemplating silence have steadily uncovered my own hidden layers. Here, transformation unfolds through surrender, service, and listening — or at least the attempt at it — in ways I continue to explore and don’t fully grasp yet.
+In the Acharya-Shishya tradition, the Acharya is far more than a transmitter of knowledge. When I joined my first Vedanta class with Acharya Jonas Masetti in February 2024, I entered a sacred lineage where his questions — sometimes sharper than any punch — began reshaping me. More than twenty hours a week of study, deep questioning, and practices like learning ancient languages, singing, and contemplating silence have uncovered hidden layers within. Here, transformation unfolds through surrender, service, and listening — or at least my best attempt at them — in ways I continue to explore and don’t fully grasp yet.
 Both traditions operate outside modern credentials and scalable courses. They are intimate, demanding, and profoundly human.
 
-I had a Sifu and an Acharya step into my life thirty-five years apart to the month. Looking back, a pattern appears where none was visible at the time — the kind of pattern that makes you suspect the universe does not deal in coincidences, only in deeper wonders we recognize only later.
+I had a Sifu and an Acharya step into my life thirty-five years apart to the month. Looking back, a pattern appears where none was visible at the time — the kind that makes you suspect the universe does not deal in coincidences, only in deeper wonders we recognize later.
 
 ## Shared Pillars of Ancestral Intelligence
 
 **1. Intimate, Living Transmission**  
-Books, videos, and online modules have their place, but these bonds remind us that certain knowledge travels best from person to person. Nuance, timing, energy, and unspoken insight resist full capture in text. The Sifu corrects a stance with a touch; the Acharya offers a single phrase that shifts perception. This direct line preserves fidelity across generations.
+Certain knowledge travels best from person to person. Nuance, timing, energy, and unspoken insight resist books or videos. The Sifu corrects a stance with a touch; the Acharya offers a single phrase that shifts perception. This direct line preserves fidelity across generations.
 
 **2. Personal Transformation Over Transaction**  
 Learning here is not about acquiring a skill set for a résumé. It remakes the learner. Humility, patience, perseverance, and ethical grounding become non-negotiable. The student is invited—sometimes required—to change. This depth stands in quiet contrast to today’s emphasis on quick wins and self-directed paths.
