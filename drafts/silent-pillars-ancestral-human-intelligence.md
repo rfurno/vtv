@@ -4,7 +4,7 @@
 
 I still remember the weight of silence in the training hall—the kind where words are sparing and every gesture carries centuries of transmitted knowledge. Years later, sitting in silence and anticipating the arrival of my Vedanta teacher, the focused presence lingering from japa mala practice moments earlier, I felt something strikingly similar. Not the same, but resonant. Both moments revealed a kind of learning that goes far deeper than information.
 
-This is why I’m launching this Substack: to explore how ancestral systems of human intelligence still speak to us today. Not as relics, but as living pillars that challenge our fast, fragmented ways of knowing. For this first post, I want to contemplate two profound teacher-student relationships—the Sifu-Todai bond in Chinese martial traditions and the Guru-Shishya bond in Indian spiritual lineages—without tracing direct parallels. Instead, I invite us to notice the shared foundations that have sustained deep human learning for generations.
+This is why I’m launching this Substack: to explore how ancestral systems of human intelligence still speak to us today. Not as relics, but as living pillars that challenge our fast, fragmented ways of knowing. For this first post, I want to contemplate two profound teacher-student relationships—the Sifu-Todai bond in Chinese martial traditions and the Guru-Shishya bond in Indian spiritual lineages—without tracing direct parallels. Instead, I invite you to join me in contemplating these shared foundations — not to reach final answers, but to spark questions, reflection, and the deeper introspection these ancestral paths encourage.
 
 ## The Quiet Architecture of Each Bond
 
