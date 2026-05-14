@@ -31,7 +31,7 @@ I’ve felt the weight of this in both directions. As a student, devotion has me
 On the teacher’s side, I’ve witnessed the quiet burden Leo and Jonas carry: protecting the tradition, modeling integrity, and guiding with care (sometimes sternly) because they see further than I do. The relationship only works when both sides accept this mutual weight. It’s heavier than I expected — and more beautiful.
 
 **4. Lifelong Lineage and Practice**  
-Mastery is never declared; it unfolds over decades. Both traditions embed the student in something larger than themselves — a chain of practitioners stretching backward and forward in time. Practice becomes a daily devotion that cultivates not just ability but presence and wisdom.
+I’m reminded every day that mastery is never declared — it unfolds slowly over decades. Both Leo and Jonas have placed me inside something much larger than myself: a living chain of practitioners stretching backward and forward in time. My daily practice — whether training forms with Leo or the steady study and contemplation with Jonas — has quietly become a devotion that sharpens not only my skill but my presence and wisdom. I still feel like I’m only at the very beginning of this ancient river.
 
 These pillars are not identical across cultures, yet they point to something universal in how humans have reliably passed on their highest knowing.
 
