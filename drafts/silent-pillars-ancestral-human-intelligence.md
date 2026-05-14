@@ -6,7 +6,7 @@ I still remember the weight of silence in the training hall—the kind where wor
 
 This is why I’m launching this Substack: to explore how ancestral systems of human intelligence still speak to us today. Not as relics, but as living pillars that challenge our fast, fragmented ways of knowing. For this first post, I want to contemplate two profound teacher-student relationships—the Sifu-Todai bond in Chinese martial traditions and the Acharya-Shishya bond in Indian spiritual lineages—without tracing direct parallels. Instead, I invite you to join me in contemplating these shared foundations — not to reach final answers, but to spark questions, reflection, and the deeper introspection these ancestral paths encourage.
 
-## The Quiet Architecture of Each Bond
+## Presence, Commitment, and the Heart of Each Bond
 
 In the Sifu-Todai relationship, the Sifu is far more than a teacher of techniques. When I first met Leo Imamura in February 1989 and later became his disciple, I stepped into a living lineage where he would shape not only technique but character, ethics, and resilience. Decades on, I continue learning from him — sharing life’s moments as he later became the father of my nephew and niece. Here, knowledge travels through the body as much as through words: forms practiced thousands of times until instinct awakens, lessons absorbed through presence, correction, and lifelong commitment.
 
