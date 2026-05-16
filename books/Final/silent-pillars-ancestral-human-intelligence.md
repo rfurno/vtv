@@ -1,4 +1,5 @@
-# Silent Pillars of Ancestral Human Intelligence: Sifu-Todai and Acharya-Shishya Bonds
+# Silent Pillars of Ancestral Human Intelligence
+# Sifu-Todai and Acharya-Shishya Bonds
 
 **By Renato Almeida**
 

@@ -1,1 +1,1 @@
-mentorship, teacher-student relationship, ancestral knowledge, vedanta, martial arts, sifu, deep learning, slow learning, guru, acharya, ving tsun
+mentorship, teacher-student relationship, ancestral knowledge, vedanta, martial arts, sifu, deep learning, slow learning, guru, acharya, ving tsun, wing chum
