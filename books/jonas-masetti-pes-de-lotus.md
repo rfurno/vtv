@@ -27,3 +27,18 @@ O papel do professor é realizar uma desconstrução da identidade que fora cons
 ---
 
 *Extracted and cleaned from uploaded PDF pages (pages 45–49 of the book).*
+
+
+# Notas sobre Śraddhā
+
+**Livro:** Pés de Lótus / A Felicidade Está Onde a Pessoa Está  
+**Páginas:** 170-171
+
+
+“...você ficar desconfortável? É o meu jeito, minha forma de dizer? São as piadas que eu faço?”. E não há problema em reconhecer que muitas vezes ela também não gosta desse jeito e está tudo bem. Se não se tem nada para esconder de si mesmo, não há o que esconder dos outros. Porém, se tem algo dentro da pessoa que ela mesma não gosta e ela nunca trabalhou isso, quando alguém diz que não gosta dela, é uma dor muito séria. É preciso entender que isso ocorre não por causa de alguém que disse isso. A questão é que ela mesma já não gosta dela, dessa faceta dela. Sempre foi ela. Nunca foi o outro. O outro, na verdade, quando se dá esse papel de dizer algo, ele é na verdade uma bênção para a pessoa. Ter uma pessoa perto de si que traz uma situação de desconforto é uma oportunidade para realizar uma investigação interior para crescer. Porque ela mostra onde a pessoa mesma não está confortável.
+
+Ocorre algo interessante, que é, no processo de crescimento que se passa, vai chegar uma hora na qual o furacão vai estar tão forte que a orientação da mente de saber que dia é hoje, de saber como que ela sai dessa não é clara. A emoção é tão grande que a pessoa não vê como que ela pode se conectar com a pessoa que ela rejeita. Isso tem que chegar, o furacão, mas ele é progressivo e proporcional à sinceridade e honestidade da pessoa. Porque se a pessoa não passar pelo desconforto, ela não chega no centro dele onde reside a paz. Então, se não quiser passar pela dor, não prossiga nessa segunda fase da espiritualidade, porque não é uma opção, é um plano de crescimento. A pressão vai aumentando e vai chegar uma hora que a pessoa perde a orientação e só uma coisa vai guiá-la: a confiança, o **śraddhā**, que é o propósito da relação professor-aluno.
+
+A mente, devido a forma como ela entrou no processo de estudo e desenvolveu esse centramento nela mesma, ela consegue se conectar com uma coisa que é maior do que as palavras, que é maior que a figura do professor, que é maior que os amigos que estão estudando com ela. É como se ela, na oração individual, sozinha no meu quarto, quisesse ser feliz. E nessa oração ela está pedindo à ordem cósmica para que a resposta venha para ela. Na forma de uma convicção interna, a pessoa descobre que ela está exatamente no lugar que ela precisa estar, escutando o que ela precisa escutar, para poder fazer a jornada dela. E essa convicção permite que, mesmo quando estiver tudo nublado, ela consiga continuar de pé, aguardar o momento de dar o próximo passo e continuar até descobrir a natureza desse furacão, desse desconforto.
+
+É como se a pessoa tivesse entrando no seu próprio filme de terror. Todo mundo guarda diversos traumas, diversos conceitos dentro de si. E o filme de terror é muito surreal porque nele os personagens são as pessoas que ela ama. Então, quanto mais se amar uma pessoa e mais relaxado se estiver, mais o filme de terror passa na face da pessoa que se ama. Como é possível que a mesma pessoa que se ama seja capaz de nos provocar tanta raiva? Isso é a projeção. E o que acontece, nesse momento, se a mente tiver uma conexão maior do que aquela experiência, é que ela consegue olhar para a experiência e falar: é um blefe. Ela consegue chamar o blefe e dizer “para um segundo, essa pessoa na...
