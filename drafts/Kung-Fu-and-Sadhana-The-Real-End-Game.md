@@ -6,10 +6,14 @@ What began as a brutal test of patience slowly revealed something deeper. First 
 
 In the etymology of **Kung Fu** (功夫), this is exactly what **Kung** (功) points to — the consummation of a feat through disciplined effort, the marriage of skillful work (**工**) and raw energy (**力**). **Fu** (夫) adds the mature, heroic character who wields that skill with moral clarity instead of ego. Not a flashy fighter. A mature practitioner.
 
-This is where my two ancestral roads — one from the Chinese martial lineage, one from the Vedantic — began to speak to each other inside my own body and mind. Not as a blended system. Simply as parallel disciplines that kept forcing me to meet the same question, over and over: who is the one doing this?
+This is where my two ancestral roads — one from the Chinese martial lineage, the other from Vedanta — began to speak to each other inside my own body and mind. Not as a blended system. Simply as parallel disciplines that kept forcing me to confront the same question, over and over: *who is the one doing this?*
 
 ## The Long Road of Repetition
 
-From my early twenties until now, both practices have worked the same way on me: relentless, often boring repetition that slowly dismantles the the idea I'm in the driver seat. In the Mo Kwoon, Siu Nim Tau exposed how much of my training was still driven by fantasy and self-image - and there were no mirrors in the hall to help me check the posture: I had to learn to look into inside for the correct posture. On the Vedanta side, the same pattern repeated: Acharya Jonas recommended 6 months to an year of japa mala - no secret mantras in sight.
+From my early twenties until now, both practices have operated the same way on me: relentless, often boring repetition that slowly dismantles the illusion that I’m in the driver’s seat.
 
-The “Little Idea” was never little. It was the seed of a much larger process: the gradual purification of the instrument (body and mind) so that something clearer could be seen. I’ll go deeper into what that “myself” turned out to be in a later piece. For now, the point is simpler: both traditions demanded I show up daily and do the unglamorous work, long after the initial excitement wore off.
+In the kwoon there were no mirrors. Siu Nim Tau forced me to look inside for correct posture instead of relying on external feedback. My fantasies of heroic performance gradually burned off. On the Vedanta side, Acharya Jonas gave the same medicine: six months to a year of japa mala before anything else. No secret mantras, no shortcuts — just daily repetition until the mind started to settle.
+
+The “Little Idea” was never little. It was the seed of a much larger process: the gradual purification of the instrument (body and mind) so something clearer could be seen. Both traditions demanded I show up daily and do the unglamorous work long after the initial excitement had worn off.
+
+I’ll explore what that “myself” ultimately turned out to be in a future piece. For now, the point is simpler: real transformation only begins once the seeker is willing to do the boring thing, repeatedly, without applause, abandoning the need to be **special**.
