@@ -12,8 +12,16 @@ This is where my two ancestral roads — one from the Chinese martial lineage, t
 
 From my early twenties until now, both practices have operated the same way on me: relentless, often boring repetition that slowly dismantles the illusion that I’m in the driver’s seat.
 
-In the kwoon there were no mirrors. Siu Nim Tau forced me to look inside for correct posture instead of relying on external feedback. My fantasies of heroic performance gradually burned off. On the Vedanta side, Acharya Jonas gave the same medicine: six months to a year of japa mala before anything else. No secret mantras, no shortcuts — just daily repetition until the mind started to settle.
+In the kwoon there were no mirrors. Siu Nim Tau forced me to look inside for correct posture instead of relying on external feedback. My fantasies of heroic performance gradually burned off. On the Vedanta side, Acharya Jonas prescribed the same medicine: six months to a year of japa mala before anything else. No secret mantras, no shortcuts — just daily repetition until the mind started to settle.
 
 The “Little Idea” was never little. It was the seed of a much larger process: the gradual purification of the instrument (body and mind) so something clearer could be seen. Both traditions demanded I show up daily and do the unglamorous work long after the initial excitement had worn off.
 
-I’ll explore what that “myself” ultimately turned out to be in a future piece. For now, the point is simpler: real transformation only begins once the seeker is willing to do the boring thing, repeatedly, without applause, abandoning the need to be **special**.
+I’ll explore what that “myself” ultimately turned out to be in a future piece. For now, the point is simpler: real transformation only begins once the seeker is willing to do the boring thing, repeatedly, without applause — abandoning the need to be special.
+
+## When the Doer Starts to Dissolve
+
+Here’s where the practices converge most sharply. In the Vedanta teaching from the Acharya's classes I attend, action performed from ego-desire carries its own poison. But when the same action is offered without attachment — simply following the harmony of the moment — it purifies. Siu Nim Tau slowly became exactly that: movement arising, centerline held, arms cycling, while the sense of a separate “doer” grew thinner as the action follows the natural conditions set by the body - mind is not directing the moving, the body is flowing into what's naturally the next movement.
+
+There is no inside and outside. The same non-division appears in Chi Sao — sticky hands — where self and other dissolve into continuous tactile feedback. The centerline becomes more than strategy; and after the 108 repetitions of "Om Namah Shivaya" counting beads of japa mala - more like 108 multiplied by 108 - starts to feel like the I'm the observer of my thoughts and actions.
+
+This is the real end game. Not better fighting. Not better meditation. Not even “spiritual martial artist” credentials. Just the quiet, sometimes brutal erosion of the seeker himself.
