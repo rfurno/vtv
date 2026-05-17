@@ -1,0 +1,4 @@
+# Kung Fu and Sadhana: The Real End Game
+
+Siu Nim Tau is the fist "form" I learned in Ving Tsun. I'd spend hours fully stationary, moving one arm, then the other, then both. Not a single kick. Not a single step. I was not like the Bruce Lee movements I was dreaming I would perform. But Sifu had a plan and my part was to have patience and learn whatever lesson was being made available to me.
+What started as a test of patience, it slowly became the ability to visualize the movement before a single muscle has received the command to move. Then it became clear it was all about a process of purification of my mind and body. To get rid of my desire to jump in the air with a kick that would know my opponent out like I'd seen so many times in Kung Fu movies. And I'd seen plenty.
