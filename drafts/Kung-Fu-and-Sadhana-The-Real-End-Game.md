@@ -1,5 +1,7 @@
 # The Little Idea: When Kung Fu Becomes Sadhana
 
+**Purification, repetition, and the slow disappearance of the doer**
+
 Siu Nim Tau — the “Little Idea” form — was the first thing my Sifu taught me in Ving Tsun. For hours I stood almost completely still, cycling one arm, then the other, then both. No kicks. No steps. Nothing resembling the explosive Bruce Lee sequences I had fantasized about since my early twenties.
 
 What began as a brutal test of patience slowly revealed something deeper. First came the ability to visualize the movement before any muscle fired. Then arrived the quiet, almost uncomfortable realization: this was purification. I was burning away the childish hunger to leap through the air and knock an opponent out the way the movies had promised. The fantasy had to die.
@@ -24,9 +26,9 @@ Here’s where the practices converge most sharply.
 
 In Acharya Jonas’ classes, action performed from ego-desire carries its own poison. But when the same action is offered without attachment — simply following the harmony of the moment — it purifies. Siu Nim Tau slowly became exactly that: movement arising, centerline held, arms cycling, while the sense of a separate “doer” grew thinner. The body knew the next position; the mind was no longer directing, only witnessing.
 
-The same dissolution appears in the 108 movements of Muk Yan Jong — the Wooden Dummy form. There is no partner, yet the dummy demands precise, continuous contact. Any urge to hit it harder, faster, or with more power instantly exposes the ego at work. The same pattern showed up on the japa mala: I would finish a round feeling quietly proud, only to catch my mind rehearsing a clever comeback to an argument I’d had with my wife minutes earlier. Both Sifu Leo and Acharya Jonas would point it out immediately.
+The same dissolution appears in the 108 movements of Muk Yan Jong — the Wooden Dummy form. There is no partner, yet the dummy demands precise, continuous contact. Any urge to hit it harder, faster, or with more power instantly exposes the ego at work. The same pattern showed up on the japa mala: I would finish a round feeling quietly proud, only to catch my mind rehearsing a clever comeback to an argument I’d had with my wife minutes earlier. Both Sifu Leo and Acharya Jonas would point it out immediately — something no TikTok tutorial or “secret mantra” video could ever do.
 
-After thousands of repetitions on the dummy and on the beads, the form stops being something I’m “doing.” The movements begin to flow through the structure, and the centerline becomes the quiet axis around which everything moves. It starts to feel like I’m simply the observer of my thoughts and actions.
+After thousands of repetitions on the dummy and on the beads, the form stops being something I’m “doing.” The movements begin to flow through the structure, and the centerline becomes the quiet axis **along which** everything moves. It starts to feel like I’m simply the observer of my thoughts and actions.
 
 This is the real end game. Not better fighting. Not better meditation. Not even “spiritual martial artist” credentials. Just the quiet, sometimes brutal erosion of the seeker himself.
 
