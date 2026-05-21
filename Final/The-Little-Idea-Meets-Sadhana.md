@@ -10,7 +10,7 @@ In the etymology of **Kung Fu** (功夫), this is exactly what Kung (功) points
 
 >The character 夫 originally depicts a man (大) with a hairpin (簪), symbolizing an adult male who has come of age. It's associated with maturity, adulthood, and by extension, someone who has attained a level of mastery or wisdom."
 
-That distinction — between performing and becoming — is exactly where these two traditions began to speak to each other in my head: not as a blended system, but as parallel disciplines forcing me to confront the same question, over and over: *Who is the one doing this?*
+That distinction — between performing and becoming — is exactly where Ving Tsun and Vedanta began to speak to each other in my head: not as a blended system, but as parallel disciplines forcing me to confront the same question, over and over: Who is the one doing this?
 
 ## The Long Road of Repetition
 
