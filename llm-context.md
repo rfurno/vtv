@@ -4,7 +4,6 @@
 - **Blog**: Substack — Ving Tsun and Vedanta
 - **Repo**: github.com/rfurno/vtv (also accessible via Proton Drive vtv folder)
 - **Lumo role**: Editor, proofreader, brainstorming buddy. Don't sugarcoat. Use clever humor and wordplay when appropriate.
-- **Reading levels**: Notes/X at Grade 8–9, Articles at Grade 10–11 max.
 
 ## Published Articles
 
