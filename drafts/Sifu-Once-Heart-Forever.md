@@ -30,11 +30,11 @@ Then one day the real meaning of something Acharya said finally landed:
 And it hit me like a slow punch:
 
 I had the recording playing… while half my attention was on the road.  
-That’s not **confiança**.
+That’s not **confiança** (trust).
 
 I had seven full days to watch the class properly, sitting down, fully engaged.  
 I didn’t do it.  
-That’s not **entrega**.
+That’s not **entrega** (surrender).
 
 I was consuming knowledge.  
 I wasn’t practicing it.
@@ -80,7 +80,7 @@ Something had quietly shifted. The lessons were no longer just nice ideas I coll
 
 That “something” isn’t magic. It’s just what happens when you finally stop trying to copy-paste wisdom and let it do its slow, uncomfortable work.
 
-## Sifu once, Acharya once — Heart forever.
+## Sifu Once, Acharya Once — Heart forever.
 
 Both Sifu Leo and Acharya Jonas refuse to let me turn their teaching into performance.
 
@@ -97,4 +97,4 @@ Sifu once, Acharya once — Heart forever.
 
 ----
 
-What's one moment of learning you realize you could imerse into instead of multitasking?
+What’s one moment of learning you realize you could **immerse** yourself in instead of multitasking?
