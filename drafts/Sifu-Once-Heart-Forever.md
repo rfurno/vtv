@@ -39,7 +39,7 @@ That’s not **entrega** (surrender).
 I was consuming knowledge.  
 I wasn’t practicing it.
 
-## Understanding Instead of the Perfect Imitation
+## Copycat vs. Understanding
 
 The second time Sifu Leo was about to show me the next part of Siu Nim Tau, he looked at me and said, “Pay attention.”
 
