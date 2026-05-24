@@ -45,26 +45,26 @@ The second time Sifu Leo was about to show me the next part of Siu Nim Tau, he l
 
 This time I actually understood what he meant.
 
-I had to be fully present. I had to learn where to look, what mattered, and how to *feel* the movement instead of just copying it.
+I had to be fully present — to learn where to look, what mattered, and how to *feel* the movement instead of just copying it.
 
 He kept reminding me that real Ving Tsun wasn’t about building a perfect copy of him. It followed a different kind of logic — one where I had to slowly develop my own version. My body needed to respond in the moment, not just repeat what looked good in the mirror.
 
-For years, almost everything else in my life had been about imitation: copy the model, repeat the drill, get it looking right. But if I wanted to actually *use* Ving Tsun when something unexpected happened, I couldn’t just be a good photocopy of my Sifu or my senior kung fu brothers and sisters.
+For years, almost everything else in my life had been about imitation. But if I wanted to actually *use* Ving Tsun when something unexpected happened, I couldn’t just be a good photocopy of my Sifu or senior brothers and sisters.
 
 I had to grow my own.
 
-In the old way — let’s call it **model logic** — you learn by watching and repeating.  
-In the **logic of self-development**, real knowledge only emerges when you stop trying to imitate and start understanding.
+In the old way — **model logic** — you learn by watching and repeating.  
+In the **self-development logic**, real knowledge only emerges when you stop trying to imitate and start understanding.
 
 And that process is much slower, much more uncomfortable… and far more valuable.
 
 That memory hit me again while listening to Acharya. He was describing the same idea, just using different words: Śravaṇa, Manana, and Nididhyāsana.
 
-I quietly admitted to myself how badly I was doing all three.
+I quietly admitted to myself how badly I was still doing all three.
 
-I’m still terrible at them. My ego is especially proud of how good I am at multitasking.
+My ego, of course, is convinced I’m doing great at multitasking through them.
 
-But at least now I can see the gap between collecting clever ideas and actually doing the work.
+But at least now I can clearly see the gap between collecting clever ideas and actually doing the work.
 
 ## When the Lesson Doesn't Get to the Heart, It Comes Out of the Mouth
 
