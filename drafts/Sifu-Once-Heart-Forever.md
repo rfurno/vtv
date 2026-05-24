@@ -1,23 +1,41 @@
 # Sifu Once, Heart Forever
 # Why Both Jonas and Sifu Leo Refuse to Let You Copy-Paste Wisdom
 
-Sifu Leo showed me the first part of Siu Nim Tau exactly once.  
+Sifu Leo showed me the first section of Siu Nim Tau **exactly once**.
 
-Just once.  
+Just once.
 
-Then he shut up and started poking, adjusting, and asking questions with his hands until I had no choice but to work it out myself. No perfect model to copy, no endless repeats.  
+Then he went quiet and started poking, correcting, and testing me with his hands until my brain had no choice but to actually do the work. No perfect model to imitate forever. No endless repetition while I zoned out.
 
-Professor Jonas does the exact same thing when he teaches Vedānta. He won’t let you simply memorize and parrot “tat tvam asi.” The knowledge isn’t allowed to stay as nice words in your notebook — it has to become yours, something that actually lives inside your body and your heart.
+Professor Jonas plays the exact same game in Vedānta. He refuses to let you turn “tat tvam asi” into nice Instagram decoration. The words are not allowed to stay comfortable in your head — they have to move in, cause trouble, and eventually become yours and live in your body.
 
-## next section - personal example
-I was driving to work and decided to catch-up on a missed Vedanta class, so I started the replay (I was NOT watching the video!) and started listening to Acharya speak.
-From time to time I'd catch a catchy phrase that would resonate well. And that I could repeat it back to my wife and share how cool it was (and how smart I sounded).
 
-but months went on and no changes were noticed with me (at least, my most attentive observer, my wife, would not say anything).
+## The Little Idea Meets Sadhana
 
-But at some point I started to understand what Acharya said "há a necessidade de confiança e de entrega ao processo de estudo".
+I thought I was being clever.
 
-I had Acharya speaking but I was half paying attention to driving. That's not confiança.
-I had Acharya speaking but I didn't set time in my week... yes, I had 7 days to watch the recorded class, to watch the recording while fully engaged and paying attention like I was in person in the class.
+I was driving to work and decided to “catch up” on a missed Vedanta class. So I played the recording (I was **not** watching the video, of course) and let Acharya’s voice fill the car.
 
-That was not "entrega".
+Every few minutes I’d hear a catchy phrase and think, *“Oh this is good. I can tell my wife about this one.”*
+
+Months went by like this. I collected beautiful little ideas. I dropped impressive lines in conversation with my wife and friends who also study Vedanta.
+
+My wife — my most attentive and honest observer — said nothing about any visible change in me.
+
+Then one day the real meaning of something Acharya had said finally landed:
+
+> “Há a necessidade de confiança e de entrega ao processo de estudo.”
+
+*There is a need for trust and surrender to the process of study.*
+
+And it hit me like a slow punch:
+
+I had the recording playing… while half my attention was on the road.  
+That’s not **confiança** (trust).
+
+I had seven full days to watch the class properly, sitting down, fully engaged like I was actually there.  
+I didn’t do it.  
+That’s not **entrega** (surrender).
+
+I was consuming knowledge.  
+I wasn’t practicing it.
