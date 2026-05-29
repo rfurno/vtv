@@ -52,3 +52,11 @@ Ruth and Peco’s note is a quiet masterclass.
 The real art isn’t just resisting the trigger — it’s catching it early and redirecting it wisely. Vedanta and Ving Tsun have taught me to treat this as inner martial practice: you don’t fight the impulse with force, you discard the unhelpful with discernment.
 
 Writing every day turns reading and reacting into excellent daily training.
+
+
+# Comment: https://substack.com/@nvtk/note/c-266415898
+Training Ving Tsun I understood the power of the invisible. The action that's is not present but delivers the intended result. The foretelling of outcomes given a reading of the current state and action.
+
+I have always been curious about the tea rituals. I imagine there's so much said with the arrangements, posture, non-verbal communication.
+
+Those ancient practices are just beautiful.
