@@ -1,39 +1,6 @@
 # Sagan, Vedanta, and the Art of Not Getting Fooled
 # How to Tell Real Transmission from Fake: Critical Thinking in Spirituality
 
-## Context for the Article (to be excluded from final article)
-
-### Core Question:
-How do we know if a teaching, lineage, or practice is authentic (legitimate) versus fake or misleading?
-→ How do we check procedência (provenance / authenticity)? How do we gain confidence that we’re in a safe, trustworthy place?
-Specific Suggestion for Next Article:
-Make a parallel between Carl Sagan’s book “The Demon-Haunted World” (O Mundo Assombrado pelos Demônios) and Vedanta.
-Use Sagan’s skeptical, scientific approach to illusion, critical thinking, and distinguishing reality from belief as a lens to examine spiritual/martial traditions.
-Also explore parallels with other books you’ve read (especially Musashi’s The Book of Five Rings).
-
-
-
-
-### Angle for the article:
-
-You speaking from your unique position: physicist + martial arts disciple (someone with real lineage training).
-Discuss how to evaluate trust and authenticity in teachings.
-Include personal reflections on how you cross-reference books/ideas with Vedanta and Ving Tsun practice.
-She believes this will appeal to both martial arts people and skeptics/philosophical readers.
-
-A balanced, honest exploration using your scientific background + traditional training to help readers develop discernment — without being purely skeptical or dogmatic. She sees high potential because you can speak with authority on both sides (rational doubt + lived lineage experience).
-
-### From Vedanta Classes with Acharya Jonas
-
-I was not comfortable with the idea that throwing away scientific theories like evolution or the big bang. I was much less comfortable with the lack of understanding on why Jonas was not considering the time scale of the known universe to consider that evolution was possible.
-
-At the same time, I was pressed to not build parallel theories just to make me accept both visions (what Jonas was saying and what I knew about science). That would put me in a position where I would grow my understanding. Just listening to what I already agree won't led to growth. I will only grow when I confront what I DON'T agree with.
-
-So, at some point Jonas offered the notion that science just pushes down the road the explanation that things are the way they are because God (Ishvara) made it like that. Science can talk about cells, mythocondrias, molecules etc, and keed going deeper and deeper until there's no more explanation (limits of current scientific theories). After that, there is only one explanation: Ishvara made it like that.
-
-
-### Core Thesis (One Sentence)
-How do we protect ourselves from being fooled in spiritual and martial arts traditions — without becoming cynical or losing the depth that real transmission can offer?
 
 ## What the Eye Can't See
 
@@ -59,39 +26,63 @@ What I conveniently ignored was the small but important word *if*. Sagan was poi
 
 Today I recognize how easily I got fooled by my own intellectual comfort.
 
-<!-- NOTE: Develop the concept of अपौरुषेय later in the article. 
-It could fit well when discussing Vedanta’s view of knowledge vs. scientific models, 
-or when exploring the limits of science and where it "hits the wall". -->
 
 ## I Never Believed in Atoms
 
 Acharya Jonas once held up a clay pot in class and asked a simple question: what is a pot, really?
 
-If you remove the shape, what remains? The weight, the shine, the color — all of those properties belong to the clay, not to some independent thing called pot.” And then he went further: there is no clay either. Only grains of sand. Only molecules. Only atoms. And so on.
+If you remove the shape, what remains? The weight, the texture, the color — none of those properties belong to the pot itself. They belong to the clay. And then he went further: there is no clay either. Only grains of sand. Only molecules. Only atoms. And so on.
 
-I recognized the move immediately. It was the same kind of deconstruction I had encountered in physics. Atoms, after all, are not little solid balls. They are models — useful abstractions we use to explain phenomena we observe. As our instruments improved, we moved past atoms into protons, neutrons, electrons, and then into quarks and beyond.
+I recognized the move immediately. It was the same kind of deconstruction I had learned in physics. Atoms were never something I had to *believe* in. I never had to accept them on faith the way one might accept a religious doctrine. I arrived at them through a gradual process — through experiments, models, and successive refinements of understanding. Atoms, like most concepts in science, were useful abstractions created to explain what we observe.
 
-For a brief moment, this felt comforting. Here was a place where Vedanta and physics seemed to agree: nothing is quite what it appears to be at first glance. Both traditions seemed to be pointing at the same thing — that what we call “reality” is more layered and less solid than our everyday perception suggests.
+As our tools improved, we moved past atoms into protons, neutrons, electrons, and then into quarks and beyond. Each new layer showed that what we once treated as fundamental was only another model — helpful until something more precise replaced it.
+
+For a brief moment, this felt like a point of agreement between Vedanta and physics. Both seemed to suggest that the world is not what it first appears to be. Both undermined the solidity of everyday objects.
 
 That comfort didn’t last long.
 
-## Sagan's Baloney Detection Kit
+It was relatively easy to feel aligned when we were talking about pots and atoms. It became much harder when the conversation moved to something larger: the origin and development of life.
 
-Extraordinary claims require extraordinary evidence.
-Look for independent confirmation.
-Encourage debate and scrutiny from multiple sides.
-Beware of arguments from authority.
-Consider alternative explanations.
+## Fish Turning Into Birds
 
+It wasn’t the first time I had heard someone question evolution in favor of intelligent design. But it was the first time I heard it from Acharya Jonas, and that surprised me.
 
-## Vedanta's Tools + Joans Tension
-Viveka, not building comfortable parallels
+He wasn’t speaking from the usual religious framing I was familiar with. He was pointing out how improbable it seemed that life could arise from simple chemistry and gradually become as complex as fish and birds. At that moment, I seriously considered not returning for the next class.
 
-## The "Ushuvara Made it Like That" Wall
-Where science and Vedanta meet (and can both be misused)
+What puzzled me was that Jonas had studied mechanical engineering at one of Brazil’s most respected universities. I expected someone with that background to naturally respect the power of deep time and large numbers. As Sagan often emphasized, learning to grasp the immense scales of cosmic time and space helps develop both wonder and humility — and protects us from small-minded or arrogant thinking.
 
-## Practical Discernment
-How to actually check a teaching/lineage
+True, if one person were mixing molecules in a pot for a single lifetime, evolution would be impossible to observe. But we’re not talking about 100 years. We’re talking about roughly **four billion years** — a span so vast that it would take a person counting one number per second, nonstop, more than a century just to reach that figure. And this process wasn’t happening in one place, but across the entire planet, in countless environments, over an almost unimaginable stretch of time.
 
-## Closing
-Personal landing
+When we consider that there may be billions of other planets in our galaxy, and billions of galaxies beyond, the scale of the experiment grows even larger. We don’t know if life has arisen elsewhere, but the sheer number of opportunities makes the question far more interesting than it first appears.
+
+What I needed wasn’t just skepticism. I needed something closer to what Vedanta calls *viveka* — discernment. The willingness to look at an uncomfortable idea without immediately protecting or rejecting it. That’s much harder than it sounds.
+
+## The "Ishvara Made it Like That" Wall
+
+I came back for the next class. I knew Jonas was intentionally putting me in an uncomfortable position — he had said so multiple times. He didn’t want me to simply *believe* what he was saying. He wanted me to go deep into my own experience and return with my own answers.
+
+And having done that, I was finally able to hear what he said next: science keeps pushing the boundaries of knowledge further and further, but eventually it hits a wall. That wall keeps moving as science advances, but it remains a wall nonetheless.
+
+At the very beginning of the universe, our current understanding of physics stops working. There’s a point so early in time that we simply don’t have the tools or theories to describe what was happening. Science, as powerful as it is, runs into a wall there. It can’t yet explain what came before that moment or what lies beyond the limits of what we currently know.
+
+At that point, Jonas offered a pragmatic suggestion: throughout human history, certain forms of knowledge have been passed down from person to person without full scientific explanations — and they worked. They helped humans survive and thrive. Some are called superstitions. Others are called traditional knowledge, like ancient agricultural practices. Why not test them directly?
+
+In Vedanta, this kind of knowledge is sometimes described as *apauruṣeya* — not created by any human mind. It doesn’t ask to be intellectually proven first. It simply asks to be tested through practice. If it produces a real result, that result becomes its own evidence.
+
+He suggested running the ultimate experiment: if an ancient practice, such as mantra repetition, produces a clear result — even before we understand *how* it works — why not try it?
+
+That was when I started to lower my defenses. I began practicing with a japamala. And for the first time, my mind became quiet and my thoughts clear in a way I had never experienced before.
+
+It worked. And for once, I didn’t feel the need to immediately explain how or why.
+
+I still carry Carl Sagan’s warning in the back of my mind — that extraordinary claims require extraordinary evidence. What I’ve experienced over these two years has been significant: improvements in my mental clarity, emotional stability, relationships, and overall sense of direction. But I’ve also learned not to rush to conclusions. Jonas continues to invite me to question everything, including what feels most meaningful to me right now. And I suspect that’s exactly how it should be.
+
+## Not Quite There Yet
+Real transmission doesn’t happen when we collect beautiful ideas or defend our existing worldview. It happens when something actually moves inside us — slowly, often uncomfortably — and begins to show up in how we live.
+
+I’m still very much in the middle of that process. Some days I’m more open. Other days I catch myself reaching for the nearest comfortable explanation again.
+
+What about you?
+
+Have you ever noticed yourself either rejecting something too quickly or trying to make it fit neatly into what you already believe? What happened when you stayed with the discomfort a little longer instead?
+
