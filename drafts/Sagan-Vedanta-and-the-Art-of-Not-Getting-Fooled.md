@@ -4,7 +4,7 @@
 
 ## What the Eye Can't See
 
-I once had to get into the lab at 4 a.m. on a weekend during an internship at the Linear Accelerator at the Physics Institute of the University of São Paulo. My job was simple: adjust some gamma ray detectors for an experiment. The tiny detectors that had to be cooled with liquid nitrogen and that would collect traces of something I couldn't see or touch. The long coils of wire forced a small realization on me: electrical signals take time to travel. It was one of those quiet moments when physics stopped being abstract and started contradicting the way I had unconsciously assumed the world worked.
+I once had to get into the lab at 4 a.m. on a weekend during an internship at the Linear Accelerator at the Physics Institute of the University of São Paulo. My job was simple: adjust some gamma ray detectors for an experiment. The tiny detectors would collect traces of something I couldn't see or touch. It was one of those quiet moments when physics stopped being abstract and started contradicting the way I had unconsciously assumed the world worked.
 
 I was a freshman and didn’t know much physics yet, but standing there in the quiet lab, half asleep, I found myself wondering: what would the world look like if we could see in gamma rays instead of visible light?
 
@@ -12,15 +12,15 @@ That question stayed with me. Not because I expected to develop gamma vision, bu
 
 My father fed this kind of curiosity from early on. He encouraged my fascination with how things worked — engines, planes, computers, electronics. I remember once bursting into my sister’s room in the middle of the night, proudly showing her a small circuit with blinking colored LEDs. She was half asleep and, I suspect, less impressed than I was. But that drive to poke at things, to see how they actually functioned, became one of the most important habits in my life.
 
-I was also exposed to another kind of curiosity. My mother was raised Catholic but explored other spiritual traditions — Kardec, Umbanda, and others. There was something alive in that openness, and I remain grateful for it. At the same time, I often felt a quiet discomfort I couldn’t quite name. It took me years to realize what it was: I was having trouble distinguishing genuine insight from the very human habit of interpreting events in ways that confirmed what we already wanted to believe.
+I was also exposed to another kind of curiosity. Although raised Catholic, my mother explored other spiritual traditions — Kardec, Umbanda, and others. I remain grateful for that openness, but I often felt a quiet discomfort I couldn’t name. It took me years to understand that I was struggling to tell genuine insight from the human tendency to interpret things in ways that confirmed what I already wanted to believe.
 
 I didn’t have good tools for that distinction back then. So I did what many people with a scientific bent do when they feel intellectually insecure: I doubled down. I started treating the scientific method not just as a powerful tool, but as the *only* legitimate way of knowing anything worth knowing. Without realizing it, I was replacing one form of dogmatism with another — only this time it came dressed in equations and skepticism.
 
 ## Easy to Get Fooled
 
-The more I learned about how the world actually works — why the sky is blue, why clouds are white even though water is transparent, why a siren changes pitch as an ambulance passes — the more confident I became that almost anything could be explained through reason, math, and physics. I started to believe that if something couldn’t be reduced to a clear, rational explanation, it probably wasn’t worth taking seriously.
+The more I learned about how the world actually works — why the sky is blue, why rainbows form, or why stars twinkle — the more confident I became that almost anything could be explained through reason and physics. I started to believe that if something couldn’t be reduced to a clear, rational explanation, it probably wasn’t worth taking seriously.
 
-This confidence quickly turned into arrogance. When friends brought up astrology, energy healing, or other “New Age” ideas, I was often dismissive. I would reach for Carl Sagan’s objection from *Cosmos*: if astrology worked through gravity, then the gravitational force of the doctor in the delivery room would be far stronger than that of any planet at the moment of birth. It seemed like an airtight argument.
+This confidence soon turned into arrogance. When friends brought up astrology, energy healing, or other “New Age” ideas, I was often dismissive. I would reach for Carl Sagan’s objection from *Cosmos*: if astrology worked through gravity, then the gravitational force of the doctor in the delivery room would be far stronger than that of any planet at the moment of birth. It seemed like an airtight argument.
 
 What I conveniently ignored was the small but important word *if*. Sagan was pointing out the weakness of one particular proposed mechanism. I took it as proof that *all* possible explanations were nonsense. It was easier to dismiss the whole subject than to sit with the discomfort of not having a good answer.
 
@@ -41,7 +41,7 @@ For a brief moment, this felt like a point of agreement between Vedanta and phys
 
 That comfort didn’t last long.
 
-It was relatively easy to feel aligned when we were talking about pots and atoms. It became much harder when the conversation moved to something larger: the origin and development of life.
+Agreeing on the nature of pots and atoms was one thing. Confronting the origin of life was something else entirely.
 
 ## Fish Turning Into Birds
 
@@ -49,11 +49,11 @@ It wasn’t the first time I had heard someone question evolution in favor of in
 
 He wasn’t speaking from the usual religious framing I was familiar with. He was pointing out how improbable it seemed that life could arise from simple chemistry and gradually become as complex as fish and birds. At that moment, I seriously considered not returning for the next class.
 
-What puzzled me was that Jonas had studied mechanical engineering at one of Brazil’s most respected universities. I expected someone with that background to naturally respect the power of deep time and large numbers. As Sagan often emphasized, learning to grasp the immense scales of cosmic time and space helps develop both wonder and humility — and protects us from small-minded or arrogant thinking.
+What surprised me was that Jonas had studied mechanical engineering at one of Brazil’s most respected universities. I expected someone with that background to naturally respect the power of deep time and large numbers. As Sagan often emphasized, learning to grasp the immense scales of cosmic time and space helps develop both wonder and humility — and protects us from small-minded or arrogant thinking.
 
 True, if one person were mixing molecules in a pot for a single lifetime, evolution would be impossible to observe. But we’re not talking about 100 years. We’re talking about roughly **four billion years** — a span so vast that it would take a person counting one number per second, nonstop, more than a century just to reach that figure. And this process wasn’t happening in one place, but across the entire planet, in countless environments, over an almost unimaginable stretch of time.
 
-When we consider that there may be billions of other planets in our galaxy, and billions of galaxies beyond, the scale of the experiment grows even larger. We don’t know if life has arisen elsewhere, but the sheer number of opportunities makes the question far more interesting than it first appears.
+When we consider the billions of planets in our galaxy and the billions of galaxies beyond, the scale of the experiment becomes even larger. We don’t know if life exists elsewhere, but the sheer number of possibilities makes the question much more interesting.
 
 What I needed wasn’t just skepticism. I needed something closer to what Vedanta calls *viveka* — discernment. The willingness to look at an uncomfortable idea without immediately protecting or rejecting it. That’s much harder than it sounds.
 
@@ -65,7 +65,7 @@ And having done that, I was finally able to hear what he said next: science keep
 
 At the very beginning of the universe, our current understanding of physics stops working. There’s a point so early in time that we simply don’t have the tools or theories to describe what was happening. Science, as powerful as it is, runs into a wall there. It can’t yet explain what came before that moment or what lies beyond the limits of what we currently know.
 
-At that point, Jonas offered a pragmatic suggestion: throughout human history, certain forms of knowledge have been passed down from person to person without full scientific explanations — and they worked. They helped humans survive and thrive. Some are called superstitions. Others are called traditional knowledge, like ancient agricultural practices. Why not test them directly?
+At that point, Jonas made a pragmatic suggestion: throughout history, certain forms of knowledge have been passed down and used successfully — even without full scientific explanations. Some are called superstitions, others traditional knowledge. Why not test them directly?
 
 In Vedanta, this kind of knowledge is sometimes described as *apauruṣeya* — not created by any human mind. It doesn’t ask to be intellectually proven first. It simply asks to be tested through practice. If it produces a real result, that result becomes its own evidence.
 
@@ -75,14 +75,14 @@ That was when I started to lower my defenses. I began practicing with a japamala
 
 It worked. And for once, I didn’t feel the need to immediately explain how or why.
 
-I still carry Carl Sagan’s warning in the back of my mind — that extraordinary claims require extraordinary evidence. What I’ve experienced over these two years has been significant: improvements in my mental clarity, emotional stability, relationships, and overall sense of direction. But I’ve also learned not to rush to conclusions. Jonas continues to invite me to question everything, including what feels most meaningful to me right now. And I suspect that’s exactly how it should be.
+I still carried Carl Sagan’s warning in the back of my mind — that extraordinary claims require extraordinary evidence. What I’ve experienced over these two years has been significant: improvements in my mental clarity, emotional stability, relationships, and overall sense of direction. But I’ve also learned not to rush to conclusions. Jonas continues to invite me to question everything, including what feels most meaningful to me right now. And I suspect that’s exactly how it should be.
 
 ## Not Quite There Yet
-Real transmission doesn’t happen when we collect beautiful ideas or defend our existing worldview. It happens when something actually moves inside us — slowly, often uncomfortably — and begins to show up in how we live.
+Real transmission doesn’t happen when we collect beautiful ideas or defend our existing beliefs. It happens when something moves inside us — slowly and often uncomfortably — and starts to show up in how we actually live.
 
 I’m still very much in the middle of that process. Some days I’m more open. Other days I catch myself reaching for the nearest comfortable explanation again.
 
 What about you?
 
-Have you ever noticed yourself either rejecting something too quickly or trying to make it fit neatly into what you already believe? What happened when you stayed with the discomfort a little longer instead?
+Have you ever noticed yourself either rejecting something too quickly or trying to make it fit neatly into what you already believe? What happened when you stayed with the discomfort instead of rushing to resolve it?
 
