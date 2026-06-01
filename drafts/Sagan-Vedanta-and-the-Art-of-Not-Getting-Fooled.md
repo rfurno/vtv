@@ -1,5 +1,5 @@
 # Sagan, Vedanta, and the Art of Not Getting Fooled
-# How to Tell Real Transmission from Fake: Critical Thinking in Spirituality
+# Learning to Discern Real Wisdom from Comfortable Illusions
 
 
 ## What the Eye Can't See
