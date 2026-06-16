@@ -1,4 +1,9 @@
-# Illusion of Knowledge
+# The Remover of Darkness
+## Illusion of Knowledge
+
+
+
+
 “The great obstacle to discovering the shape of the earth, the continents, and the ocean was not ignorance but the illusion of knowledge.”
 Daniel Boorstin wrote that about explorers who kept sailing with maps they trusted too much.
 What if the same trap sits in the training space or on the cushion?
@@ -165,3 +170,27 @@ The ease with which we can be certain about things we haven’t actually examine
 
 How it connects to Boorstin + your project: Sagan gives you the skeptical, evidence-based angle on illusion of knowledge. Boorstin gives the historical/cultural angle. Your Ving Tsun + Vedanta practice gives the embodied, lineage-based counter-example. A Note could triangulate all three: modern media + unexamined beliefs (Sagan) create synthetic certainty (Boorstin), while real transmission and sadhana offer a slower, more accountable path.
 Limitation: Because it’s a full book, you’d need to pull specific short passages if you want to quote. The repo has it as source material, so it’s clearly intended for cross-referencing with the skeptical/rational side of your thinking.
+
+
+
+
+The quote (commonly attributed to Bruce Lee, though it echoes older Zen and Taoist ideas) is usually phrased like this:
+“Before I studied the art, a punch was just a punch.
+After I studied the art, a punch was no longer just a punch.
+Now that I understand the art, a punch is just a punch again.”
+Why it works so well for your Substack
+It maps almost perfectly onto the “illusion of knowledge” territory we’ve been exploring with Boorstin, Pirsig, and the Jonas Masetti material.
+Here’s the connection:
+
+Stage 1 (Beginner): A punch is just a punch. Simple, direct, no conceptual overlay. You haven’t built an elaborate mental model yet.
+Stage 2 (Intermediate / “more than a punch”): This is where the illusion of knowledge kicks in hard. You now have technique, power generation, timing, strategy, biomechanics, mental game, lineage theory, etc. The punch becomes loaded with concepts, corrections, and “correct” ways of doing it. This stage is necessary, but it’s also where people can get stuck in their own mental maps — exactly what Boorstin warned about. The confident knowledge becomes the obstacle to direct action.
+Stage 3 (Advanced): A punch is just a punch again — but now with depth. The concepts have been internalized or dropped. What returns is simplicity, but it’s a simplicity on the other side of complexity. This is the stage where real transmission and long sadhana show their value. It echoes Pirsig’s return to direct Quality and the Jonas notes on moving through the “hurricane” until you regain inner conviction and natural action.
+
+This progression is very close to what you’re already writing about in the Ving Tsun + Vedanta space: the movement from external knowledge and conditioning → the necessary deconstruction → a more direct, embodied knowing.
+
+
+
+
+“Kung Fu without a system is not good Kung Fu.
+Kung Fu that depends on a system is not good Kung Fu.”
+
