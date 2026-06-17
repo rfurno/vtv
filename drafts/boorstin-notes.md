@@ -4,6 +4,7 @@
 
 
 
+
 “The great obstacle to discovering the shape of the earth, the continents, and the ocean was not ignorance but the illusion of knowledge.”
 Daniel Boorstin wrote that about explorers who kept sailing with maps they trusted too much.
 What if the same trap sits in the training space or on the cushion?
