@@ -33,25 +33,25 @@ I watched wars unfold on the news and longtime politicians trading accusations. 
 
 South Florida offered easy escapes. Parties, sun, beaches, and the endless distractions of Miami’s social scene acted as anesthesia; noise drowned the signal. But inside, the storm wasn’t weather. It was the friction between the map I held and the territory I lived.
 
-I doubled down. My self-defense training was becoming more serious. I started studying the Constitution and constitutional law, hoping these tools would help me navigate the chaos. I was building what felt like better maps.
+I doubled down. Self-defense training became serious. I started studying the Constitution and constitutional law, hoping these tools would help me navigate the chaos. I was building what felt like better maps.
 
-Yet none of it quieted the growing storm. It reminded me of the hurricanes we get in South Florida — violent, loud, and destructive. They tear through whatever looks stable: roofs, trees, even the fragile peace between neighbors fighting over a can of gas. The outer world was unpredictable, but the louder storm was the one inside. Old patterns of reactivity, fear, and the need to be right were spinning faster. The more I tried to manage everything with better information or better technique, the more clearly I felt the limits of those tools.
+None of it worked. It reminded me of the hurricanes we get in South Florida — violent, loud, and destructive. They tear through whatever looks stable: roofs, trees, even the fragile peace between neighbors fighting over a can of gas. Old patterns of reactivity, fear, and the need to be right were spinning faster. The more I tried to manage everything with better information or better technique, the more clearly I felt the limits of those tools.
 
-I could see the manufactured drama on screens and the way conversations were being shaped. It felt like I was both watching and being watched in a kind of digital carnival. I was speeding toward nowhere, leaving the most important people behind — my wife, my parents, my family, and ultimately myself. The maps I had been relying on — professional, political, or martial — were leading me toward consumption, polarization, and quiet dependency.
+I was doom-scrolling through manufactured outrage, half-watching myself get played. I was speeding toward nowhere, leaving the most important people behind — my wife, my parents, my family, and ultimately myself. The maps I had been relying on — professional, political, or martial — were leading me toward consumption, polarization, and quiet dependency.
 
 At some point my wife invited me to take meditation classes and listen to lectures from a Buddhist monk. It helped. For the first time I had something that spoke directly to the storm instead of just trying to manage the external chaos. But even then, something still felt missing. The practices were helpful, but they were mostly self-directed. I was still largely on my own with the hurricane.
 
-It slowly became clear that I had been looking in the wrong direction. The maps I trusted weren’t reaching the real storm. I had to turn inward.
+The maps I trusted weren’t reaching the real storm. I had to turn inward.
 
-What I didn’t know yet was that the real shift would come from living transmission — from someone who could see further than I could and help remove the darkness I was still mistaking for light.
+The real shift would come from living transmission — from someone who could see further than I could and help remove the darkness I was still mistaking for light.
 
 ## The Rope and the Snake
 
 Up to that point I had been treating knowledge the way I treated most things: as something I could collect. More information, more techniques, more frameworks. I believed that if I just gathered enough, the grinding gearwork of my own thinking would eventually settle. I already understood from Ving Tsun that real understanding does not come from piling up techniques. It comes through living transmission — through someone who has walked the path showing you how to walk it. But I had never brought that understanding into what was happening inside me.
 
-On the way back from a trip, my wife was listening to her Vedanta class in the car. I heard Acharya Jonas speak, and I heard the locks clicking in my head. He was talking about Arjuna’s dilemma in the Bhagavad Gita. On the battlefield, faced with the prospect of fighting his own family and teachers, Arjuna drops his bow in despair. He is overwhelmed — not by lack of skill, but by inner conflict. That image stayed with me. I recognized the feeling.
+Driving back from a trip, my wife had her Vedanta class playing in the car. I heard Acharya Jonas speak, and I heard the locks clicking in my head. He was talking about Arjuna’s dilemma in the Bhagavad Gita. On the battlefield, faced with the prospect of fighting his own family and teachers, Arjuna drops his bow in despair. He is overwhelmed — not by lack of skill, but by inner conflict. That image stayed with me. I recognized the feeling.
 
-I had heard about the Gita before, but this time it landed differently. I began to understand that Acharya Jonas was not just offering ideas. He was pointing to knowledge that is passed directly from one person to another.
+I had heard about the Gita before. This time it landed. I began to understand that Acharya Jonas was not just offering ideas. He was pointing to knowledge that is passed directly from one person to another.
 
 In Vedanta there is a simple image: a man walks along a dark path and sees what he takes to be a snake. He stops, frozen in fear. Then someone brings a light, and he sees it was only a coiled rope all along. Once he sees the rope, the fear does not return, even when the light is gone. The illusion has been seen through.
 
@@ -59,7 +59,7 @@ That was when the light shone on my path.
 
 For a long time I had been studying the snake. I was trying to figure out what kind it was, what to do if it struck, how to protect myself. I was looking for better information and better techniques. What I actually needed was someone to shine a light on what I was really afraid of.
 
-This did not happen through a video or a single powerful sentence. It took months of showing up to class, of listening, and of having my ideas gently taken apart and examined. I started to see something I had only heard before: we can only accept a teaching as far as the mind is ready to receive it. When there is a gap between what is being pointed to and what the mind can currently hold, that gap itself becomes the place where real learning can happen. But the mind cannot be forced. It has to be led, slowly, until it can see for itself.
+This did not happen through a video or a single powerful sentence. It took months of showing up to class, of listening, and of having my ideas gently taken apart and examined. I started to see something I had only heard before: we can only accept a teaching as far as the mind is ready to receive it. When there is a gap between what is being pointed to and what the mind can currently hold, that gap itself becomes the place where real learning can happen. The mind cannot be forced. It has to be led, slowly, until it can see for itself.
 
 I began to notice that most of what I had been calling “knowledge” was only information my mind had accepted. And anything I could not truly see and verify for myself had very little power to bring lasting peace. The more I tried to manage the storm with thinking, planning, or collecting better tools, the more clearly I felt how limited those tools were when the storm was inside.
 
@@ -77,7 +77,7 @@ What I had understood for years in Ving Tsun, I was now slowly applying to what 
 
 Repetitive, embodied practice is not about adding more knowledge or becoming more skilled in the usual sense. It is the slow, often uncomfortable work of letting the one who is constantly managing, correcting, and measuring gradually lose its grip. In the beginning, this can feel like losing something. Over time, it becomes a kind of freedom.
 
-Even then, the old patterns return with force. Political news still triggers me; old fears, projections, and the need to control rise up until the mind loses its bearings. In those moments, neither technique nor intellectual understanding is enough. What remains is śraddhā—Sanskrit for a trust that survives uncertainty. It is not blind faith, but a steady conviction strong enough to keep herding the chaos in my head when nothing feels clear. It is the quiet knowing that the process is still moving, even when the storm makes the path invisible.
+Even then, the old patterns return with force. Political news still triggers me; old fears, projections, and the need to control rise up until the mind loses its bearings. In those moments, neither technique nor intellectual understanding is enough. What remains is śraddhā — Sanskrit for a trust that survives uncertainty. It is not blind faith, but a steady conviction strong enough to keep herding the chaos in my head when nothing feels clear. It is the quiet knowing that the process is still moving, even when the storm makes the path invisible.
 
 What changed was no longer trying to solve the storm alone with better thinking or stronger technique. Instead, I began to stay with it — through repetition, through relationship, and through the simple fact that I no longer had to figure everything out by myself. I was in good company.
 
