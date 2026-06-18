@@ -1,5 +1,4 @@
 # The Remover of Darkness
-
 ## Illusion of Knowledge and the Two Clouds
 
 In April 1900, Lord Kelvin delivered a lecture at the Royal Institution in London that has become legendary in the history of science. The published version opens with these words:
@@ -12,11 +11,11 @@ One concerned the mysterious ether and the failure to detect the Earth’s motio
 
 Fix these minor details, the thinking went, and physics would be finished.
 
-Within five years those two clouds had become revolutions. Planck’s quantum hypothesis and Einstein’s 1905 papers did not merely patch the old framework. They revealed that the framework itself rested on assumptions that could not survive contact with reality at its extremes. The obstacle had never been simple ignorance. It was the confident illusion that the existing map already captured almost everything that mattered.
+Within five years those two clouds had become revolutions. Planck’s quantum hypothesis and Einstein’s 1905 papers did not merely patch the old framework. They revealed that the framework itself rested on assumptions that could not survive contact with reality at its extremes.
 
 The real obstacle was never ignorance. It was the quiet, powerful illusion that they already knew almost everything that mattered.
 
-I recognized the same pattern in my own life.
+I didn’t have physicists’ equations. I had spreadsheets and my life roadmap. And just like classical physics, my spreadsheet model of success couldn’t handle the quantum uncertainty of human failure.
 
 From one direction, I had doubled down on the STEM path. University classes in Physics, followed by a full-time IT job while still studying, gave me the satisfying sense that any problem could be broken down and solved with logic and analysis. The tools felt sufficient.
 
@@ -32,9 +31,9 @@ The clouds were no longer distant. They were picking up speed.
 
 I watched wars unfold on the news and longtime politicians trading accusations. I saw friends turn on each other over ideology. During the turmoil of 2020 the noise grew louder — people demanding trust in one version of events while calling others heroes or villains. It felt like violence was moving closer to everyday life.
 
-At the same time, South Florida offered easy escapes. Parties, sun, beaches, and the endless distractions of Miami’s social scene kept the surface bright and busy. On the outside, life could still feel light.
+South Florida offered easy escapes. Parties, sun, beaches, and the endless distractions of Miami’s social scene acted as anesthesia; noise drowned the signal. But inside, the storm wasn’t weather. It was the friction between the map I held and the territory I lived.
 
-Inside, though, something was shifting. My self-defense training was becoming more serious. I started studying the Constitution and constitutional law, hoping these tools would help me navigate the chaos. I was building what felt like better maps.
+I doubled down. My self-defense training was becoming more serious. I started studying the Constitution and constitutional law, hoping these tools would help me navigate the chaos. I was building what felt like better maps.
 
 Yet none of it quieted the growing storm. It reminded me of the hurricanes we get in South Florida — violent, loud, and destructive. They tear through whatever looks stable: roofs, trees, even the fragile peace between neighbors fighting over a can of gas. The outer world was unpredictable, but the louder storm was the one inside. Old patterns of reactivity, fear, and the need to be right were spinning faster. The more I tried to manage everything with better information or better technique, the more clearly I felt the limits of those tools.
 
@@ -48,15 +47,15 @@ What I didn’t know yet was that the real shift would come from living transmis
 
 ## The Rope and the Snake
 
-Up to that point I had been treating knowledge the way I treated most things: as something I could collect. More information, more techniques, more frameworks. I believed that if I just gathered enough, the storm inside would eventually settle. I already understood from Ving Tsun that real understanding does not come from piling up techniques. It comes through living transmission — through someone who has walked the path showing you how to walk it. But I had never brought that understanding into what was happening inside me.
+Up to that point I had been treating knowledge the way I treated most things: as something I could collect. More information, more techniques, more frameworks. I believed that if I just gathered enough, the grinding gearwork of my own thinking would eventually settle. I already understood from Ving Tsun that real understanding does not come from piling up techniques. It comes through living transmission — through someone who has walked the path showing you how to walk it. But I had never brought that understanding into what was happening inside me.
 
-On the way back from a trip, my wife was listening to her Vedanta class in the car. I heard Acharya Jonas speak, and something shifted. He was talking about Arjuna’s dilemma in the Bhagavad Gita. On the battlefield, faced with the prospect of fighting his own family and teachers, Arjuna drops his bow in despair. He is overwhelmed — not by lack of skill, but by inner conflict. That image stayed with me. I recognized the feeling.
+On the way back from a trip, my wife was listening to her Vedanta class in the car. I heard Acharya Jonas speak, and I heard the locks clicking in my head. He was talking about Arjuna’s dilemma in the Bhagavad Gita. On the battlefield, faced with the prospect of fighting his own family and teachers, Arjuna drops his bow in despair. He is overwhelmed — not by lack of skill, but by inner conflict. That image stayed with me. I recognized the feeling.
 
 I had heard about the Gita before, but this time it landed differently. I began to understand that Acharya Jonas was not just offering ideas. He was pointing to knowledge that is passed directly from one person to another.
 
-That was when the light came on.
-
 In Vedanta there is a simple image: a man walks along a dark path and sees what he takes to be a snake. He stops, frozen in fear. Then someone brings a light, and he sees it was only a coiled rope all along. Once he sees the rope, the fear does not return, even when the light is gone. The illusion has been seen through.
+
+That was when the light shone on my path.
 
 For a long time I had been studying the snake. I was trying to figure out what kind it was, what to do if it struck, how to protect myself. I was looking for better information and better techniques. What I actually needed was someone to shine a light on what I was really afraid of.
 
@@ -78,15 +77,13 @@ What I had understood for years in Ving Tsun, I was now slowly applying to what 
 
 Repetitive, embodied practice is not about adding more knowledge or becoming more skilled in the usual sense. It is the slow, often uncomfortable work of letting the one who is constantly managing, correcting, and measuring gradually lose its grip. In the beginning, this can feel like losing something. Over time, it becomes a kind of freedom.
 
-Even then, the old patterns can return with force. I still get easily triggered by political news or conflict. Old fears, projections, and the need to control rise up, and the mind loses its bearings. In those moments, neither technique nor intellectual understanding is enough. What remains is śraddhā — a trust that is not blind, but steady enough to keep returning to practice even when nothing feels clear. It is the quiet conviction that the process is still moving, even when the storm makes it impossible to see the path ahead.
+Even then, the old patterns return with force. Political news still triggers me; old fears, projections, and the need to control rise up until the mind loses its bearings. In those moments, neither technique nor intellectual understanding is enough. What remains is śraddhā—Sanskrit for a trust that survives uncertainty. It is not blind faith, but a steady conviction strong enough to keep herding the chaos in my head when nothing feels clear. It is the quiet knowing that the process is still moving, even when the storm makes the path invisible.
 
 What changed was no longer trying to solve the storm alone with better thinking or stronger technique. Instead, I began to stay with it — through repetition, through relationship, and through the simple fact that I no longer had to figure everything out by myself. I was in good company.
 
 ---
 
-If this piece stirred something in you, here’s a simple question to sit with:
-
-What is one “snake” you’ve been studying, analyzing, or trying to manage for a long time — and what would it feel like to finally shine a light on it?
+Tonight, pick one problem you’re obsessively analyzing—the fight you’re rehearsing, the habit you can’t fix. Ask yourself: 'Am I holding a flashlight on the rope, or am I still studying the snake?' If you saw the rope, share how the fear vanished. If you didn't, share what the snake looked like this time. No praise needed. Just the truth.
 
 If you’re curious to explore Vedanta through living transmission, you can find Acharya Jonas’s teachings here:  
 [vedanta.com.br/en](https://vedanta.com.br/en)
