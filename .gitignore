@@ -17,3 +17,6 @@ temp/
 # Optional: If you want to ignore all hidden files except .gitignore itself
 # (Be careful: this might hide useful config files like .env if you aren't tracking them)
 # !.gitignore
+
+# Ignore images directory (user request)
+images/
