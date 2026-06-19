@@ -195,3 +195,12 @@ This progression is very close to what you’re already writing about in the Vin
 “Kung Fu without a system is not good Kung Fu.
 Kung Fu that depends on a system is not good Kung Fu.”
 
+
+
+
+## X Post
+“Two small clouds.”  
+That’s what they called the problems that birthed quantum mechanics and relativity.
+
+New essay: The Remover of Darkness  
+https://rfurno.substack.com/p/the-remover-of-darkness
