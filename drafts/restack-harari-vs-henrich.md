@@ -1,8 +1,9 @@
 // Restack commentary for Joseph Heath's "Harari vs. Henrich" post
 // Original post auto-quoted above in Substack
+// Updated: user has NOT read Henrich yet - this post is the wake-up call to start
 
-Every so often I get one of those quiet wake-up calls about an idea I thought I already understood years ago.
+Joseph Heath’s comparison between Harari and Henrich gave me one of those quiet wake-up calls.
 
-This comparison between Harari and Henrich landed that way. The reversal of the sequence — culture coming before intelligence, cooperation, and even language — feels bigger than I remembered. I need to go back and re-read Henrich properly, more slowly this time.
+I haven’t read Henrich before, but the case that culture is the primary adaptation — coming before cooperation, language, and even intelligence — feels too foundational to keep skipping. I need to read him properly now.
 
-How often do you revisit books or ideas that once felt settled, only to discover they have more to give on a second (or third) pass?
+Have you read Henrich? Which of his books would you start with if you were me?
