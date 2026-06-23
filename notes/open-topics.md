@@ -9,7 +9,9 @@ This document tracks potential future posts, explorations, and open questions fo
 From Prof Jonas: Guru can be used when talking to other students but if used with the general public the term "guru" may mean different things to different people. E.g. there's even the "guru of sex"
 
 ### Additional Topics to Consider
-- (Add more here as we brainstorm)
+- Feminização da Guerra
+- Illusion of Knowledge: AI making a mash up of the entire internet and mistaken it for knowlege. Versus what I slowly learn from a long time duration course with an Acharya, developing concept by concept. For example, AI summary produced this in response to a question about rope/snake analogy: "Rope is less real than snake, but still not ultimately real;
+only Brahman is." But how the whole concept of what we normally call reality was descronstructed by Acharya, left now room for mistaking "reality", "lesser reality", "Brahman". I was not collecting interesting facts or snippets of knowledge, I was being led to understanding, step by step.
 
 ## How to Use This List
 - Topics are intentionally open for contemplation.
