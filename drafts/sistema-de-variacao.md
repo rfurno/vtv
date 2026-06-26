@@ -1,0 +1,3 @@
+# Draft for Sistema de Variação
+
+Os mestres estrategistas não nos ofereceram um “manual de receitas”. Eles nos ofertaram um modo de olhar. Em vez de perguntar: “Qual é a regra?”, eles nos convidam a perguntar: Como a situação está se configurando agora? Que tipo de configuração se formou? De que modo isso pode mudar? Qual passagem está se abrindo diante de mim?  Nesse sentido, o sistema não é um bloco rígido e sim uma espécie de gramática da variação: uma forma de ler diferenças, transições e possibilidades, em vez de se apegar a verdades imóveis.
