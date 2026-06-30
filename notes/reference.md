@@ -37,3 +37,7 @@ Kuen Kuit são versos curtos tradicionais usados nas artes marciais chinesas par
 
 jiu sik — dispositivos corporais de combate simbólico — expressam o desenvolvimento natural de uma tendência. Eles mostram como uma intenção se forma, se transforma e encontra vias de realização.
 
+To Dai 徒弟 (tú dì), designa o aluno de um si fu ao ingressar na Família Kung Fu. Indica aquele que segue um caminho e marca a posição filial na casa do mestre. O to dai assume compromisso, lealdade e continuidade de linhagem. Aprender como to dai é crescer dentro de uma relação, não apenas adquirir técnicas.
+
+
+

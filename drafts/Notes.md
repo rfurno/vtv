@@ -1,33 +1,16 @@
-## Context for the Article (to be excluded from final article)
+# Usando a palavra errada: "problemática"
 
-### Core Question:
-How do we know if a teaching, lineage, or practice is authentic (legitimate) versus fake or misleading?
-→ How do we check procedência (provenance / authenticity)? How do we gain confidence that we’re in a safe, trustworthy place?
-Specific Suggestion for Next Article:
-Make a parallel between Carl Sagan’s book “The Demon-Haunted World” (O Mundo Assombrado pelos Demônios) and Vedanta.
-Use Sagan’s skeptical, scientific approach to illusion, critical thinking, and distinguishing reality from belief as a lens to examine spiritual/martial traditions.
-Also explore parallels with other books you’ve read (especially Musashi’s The Book of Five Rings).
+Numa reunião recente de um projeto que participo, soltei uma palavra infeliz: **problemática**.
 
+Eu só queria dizer que precisávamos olhar o projeto por vários ângulos — inclusive as situações mais difíceis. Mas logo depois fiquei pensando no impacto que aquela palavra pode ter causado nas outras pessoas.
 
+O que mais me marcou foi notar uma diferença clara: quando escrevo artigos, aprendi a limpar a linguagem e pesar cada palavra. Na fala, ainda carrego muita carga emocional. 
 
+Existe uma desconexão entre o que penso, o que escrevo e o que falo. E isso me faz questionar: será que também existe uma desconexão com o que faço?
 
-### Angle for the article:
+No Ving Tsun, a gente visualiza o movimento muito antes de executá-lo. Quando mente e corpo não estão alinhados, a ação sai torta. 
 
-You speaking from your unique position: physicist + martial arts disciple (someone with real lineage training).
-Discuss how to evaluate trust and authenticity in teachings.
-Include personal reflections on how you cross-reference books/ideas with Vedanta and Ving Tsun practice.
-She believes this will appeal to both martial arts people and skeptics/philosophical readers.
+No Vedanta, tenho estudado o conceito de **satya** — a prática de falar a verdade de um jeito que beneficie, em vez de machucar. Não é só dizer o que é real, mas escolher as palavras com consciência, para que o que sai da boca alinhe com o que a gente realmente quer criar.
 
-A balanced, honest exploration using your scientific background + traditional training to help readers develop discernment — without being purely skeptical or dogmatic. She sees high potential because you can speak with authority on both sides (rational doubt + lived lineage experience).
+Perceber essa brecha já é o primeiro passo. Assim como na arte marcial, a consciência me permite praticar e melhorar.
 
-### From Vedanta Classes with Acharya Jonas
-
-I was not comfortable with the idea that throwing away scientific theories like evolution or the big bang. I was much less comfortable with the lack of understanding on why Jonas was not considering the time scale of the known universe to consider that evolution was possible.
-
-At the same time, I was pressed to not build parallel theories just to make me accept both visions (what Jonas was saying and what I knew about science). That would put me in a position where I would grow my understanding. Just listening to what I already agree won't led to growth. I will only grow when I confront what I DON'T agree with.
-
-So, at some point Jonas offered the notion that science just pushes down the road the explanation that things are the way they are because God (Ishvara) made it like that. Science can talk about cells, mythocondrias, molecules etc, and keed going deeper and deeper until there's no more explanation (limits of current scientific theories). After that, there is only one explanation: Ishvara made it like that.
-
-
-### Core Thesis (One Sentence)
-How do we protect ourselves from being fooled in spiritual and martial arts traditions — without becoming cynical or losing the depth that real transmission can offer?
