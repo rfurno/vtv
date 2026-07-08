@@ -9,31 +9,30 @@ Instead I was told: no pain no gain, lease the German car you can’t really aff
 
 That advice didn’t make me stronger. It left me exhausted — and strangely empty even when I was “winning.”
 
-The light on my path came from my Sifu Leo. During late night discussions at the Mo Goon he introduced me old Chinese text that described something called *feminine conduct* — the strategic choice to fully receive a situation before deciding how to act.
+The light on my path came from my Sifu Leo. During late night discussions at the Mo Goon he introduced me to an old Chinese text that described something called *feminine conduct* — the strategic choice to fully receive a situation before deciding how to act.
 
-## The Four Political Treatises of the Yellow Emperor
+## The Yellow Emperor
 
-The text Sifu Leo pointed me to is part of the Huangdi Sijing — the Four Political Treatises of the Yellow Emperor, a collection of silk manuscripts discovered in 1973 that had been buried for over two thousand years. Written in the voice of the legendary Yellow Emperor, the texts lay out a very specific philosophy of rulership. Among its most striking ideas is the distinction between two fundamental modes of conduct: masculine and feminine.
+The text Sifu Leo pointed me to is part of the *Huangdi Sijing* — the Four Political Treatises of the Yellow Emperor, a collection of silk manuscripts discovered in 1973 that had been buried for over two thousand years. Written in the voice of the legendary Yellow Emperor, the texts lay out a very specific philosophy of rulership. Among its most striking ideas is the distinction between two fundamental modes of conduct: masculine and feminine.
+
 Masculine conduct is aggressive, overt, and impatient. It wants to initiate, dominate, and push forward. It seeks quick wins and visible strength. Feminine conduct, by contrast, is modest, yielding, and patient. It prefers to stand behind rather than in front, to wait rather than to charge. The texts are clear about which one leads to lasting success:
 
->“It is called the accumulation of disasters to achieve one success after another by persisting in masculine conduct… On the contrary, it is called accumulation of merit to suffer losses by persisting in feminine conduct. Be cautious and do not give it up in this case, for great gains will be secured in the future.”
+> “It is called the accumulation of disasters to achieve one success after another by persisting in masculine conduct… On the contrary, it is called accumulation of virtues to suffer losses by persisting in feminine conduct. Be cautious and do not give it up in this case, for great gains will be secured in the future.”
 
-The strategy is not to remain passive forever. It is to adopt a receptive, low-profile posture as the default — to wait for the opponent’s strength to weaken or for the right conditions to appear — and only then move decisively. One legendary ruler described in the texts, Da Ting, is praised precisely for this approach: he remained calm and composed, “stood behind others and never in front,” and “modeled himself after feminine conduct.” When the moment came, he struck. But until then, he gave the appearance of weakness.
-This is the key nuance the texts insist on. Feminine conduct is not the same as never fighting. It is a way of preparing for the fight so that when you do act, you are not exhausting yourself or creating unnecessary enemies. As the Second Text puts it:
+The strategy is not to remain passive forever. It is to adopt a receptive, low-profile posture as the default — to wait for the opponent’s strength to weaken or for the right conditions to appear — and only then move decisively.
 
->“Those who initiate contentions suffer misfortune. However, those who do not engage in struggle will have no achievement.”
+This is the key nuance the texts insist on. Feminine conduct is not the same as never fighting. It is a way of preparing for the fight so that when you do act, you are not exhausting yourself or creating unnecessary enemies. As the text puts it:
+
+> “Those who initiate contentions suffer misfortune. However, those who do not engage in struggle will have no achievement.”
 
 In other words: don’t start the fight. But don’t refuse to engage when the conditions are right either.
 
 I didn’t expect ancient texts on rulership to describe so precisely the kind of pressure I’d been under, but they did. The constant cultural pressure to be the one who initiates, who pushes, who “gets after it” — that was masculine conduct. And it was exhausting me.
 
-After years of practicing and studying Ving Tsun with this in mind, it was Vedanta that finally gave me the real target: my own ego.
+After years of practicing and studying Ving Tsun with this in mind, it was Vedanta that finally gave me the cue to act and a real target: my own ego.
 
 
-
-
-
-
+Something similar appears in the life of Śāradā Devī, the Holy Mother of the Ramakrishna tradition. She didn’t teach through force or public authority. Instead, she received everyone who came to her — the good and the difficult alike — with the simple statement: “I am the mother of whoever is good and also of whoever is bad.” Her power was not in imposing her will, but in her capacity to hold space without judgment. In her kitchen she turned ordinary acts into spiritual practice, showing that feminine conduct is not withdrawal from the world, but a way of moving through it with receptivity and care.
 
 
 Core: Explain feminine conduct from the Sijing (quotes on holding to the feminine, acting later = good fortune, accumulation of virtue). Show it is strategic, not passive.
