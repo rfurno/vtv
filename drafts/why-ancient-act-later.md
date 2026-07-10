@@ -27,12 +27,24 @@ This is the key nuance the texts insist on. Feminine conduct is not the same as 
 
 In other words: don’t start the fight. But don’t refuse to engage when the conditions are right either.
 
-I didn’t expect ancient texts on rulership to describe so precisely the kind of pressure I’d been under, but they did. The constant cultural pressure to be the one who initiates, who pushes, who “gets after it” — that was masculine conduct. And it was exhausting me.
+The constant cultural pressure to be the one who initiates, who pushes, who “gets after it” — that was masculine conduct. And it was exhausting me.
+
+I feel I must pause here and speak directly to you, the reader. I don’t expect to randomly pick a sentence from an ancient text and make an interpretation that perfectly matches my current situation with a straight face. If you want the scholarly references on the *Huangdi Sijing* and feminine conduct, you’ll find them at the end of the article. What I actually want to convey is something quieter: that tingling feeling at the back of the mind that there must be deeper connections between things that keep appearing across years and centuries — connections that could be dismissed as coincidence, or as my mind simply projecting patterns onto clouds and seeing a bunny on the Moon. I’m well aware the Yellow Emperor had far more pressing matters than my mundane preoccupations. Still, this is my learning, and this is how I’m putting words to a narrative that has been quietly shaping me. So I hope you’ll stay with the story.
+
+And Ving Tsun is named after its founder, Yim Ving Tsun. In a time and place where martial arts were almost entirely dominated by men, one of the most influential systems carries a woman’s name. That detail is not accidental. It points to the same principle we’ve been exploring: the power that comes from receiving and redirecting force rather than meeting it head-on.
+
+Faat Do: um critério para verificar a própria conduta, dentro e fora do mo gun. Um modo de saber se aquilo que fazemos — sob pressão, em relação, na vida — pode continuar.
+
 
 After years of practicing and studying Ving Tsun with this in mind, it was Vedanta that finally gave me the cue to act and a real target: my own ego.
 
+## Echoes in Other Traditions
 
 Something similar appears in the life of Śāradā Devī, the Holy Mother of the Ramakrishna tradition. She didn’t teach through force or public authority. Instead, she received everyone who came to her — the good and the difficult alike — with the simple statement: “I am the mother of whoever is good and also of whoever is bad.” Her power was not in imposing her will, but in her capacity to hold space without judgment. In her kitchen she turned ordinary acts into spiritual practice, showing that feminine conduct is not withdrawal from the world, but a way of moving through it with receptivity and care.
+
+placeholder to follow with my personal example
+
+
 
 
 Core: Explain feminine conduct from the Sijing (quotes on holding to the feminine, acting later = good fortune, accumulation of virtue). Show it is strategic, not passive.
