@@ -33,8 +33,16 @@ I feel I must pause here and speak directly to you, the reader. I don’t expect
 
 And Ving Tsun is named after its founder, Yim Ving Tsun. In a time and place where martial arts were almost entirely dominated by men, one of the most influential systems carries a woman’s name. That detail is not accidental. It points to the same principle we’ve been exploring: the power that comes from receiving and redirecting force rather than meeting it head-on.
 
-Faat Do: um critério para verificar a própria conduta, dentro e fora do mo gun. Um modo de saber se aquilo que fazemos — sob pressão, em relação, na vida — pode continuar.
+Over the years I took part in so many events with my Kung Fu family and I kept noticing the same thing: how both my Si Mo (Sifu's wife) and my Si Tai (Sifu's Sifu's wife) work behind the scenes. Whereas I'd jump to "help" during Yam Cha — the traditional Chinese brunch where the whole Kung Fu family gathers - and clumsily serve tea to my Si Fu or Kung Fu brothers, I'd watch how my Si Mo would read the room with surgical precision and time her interventions perfectly. How she'd give a cue when to act and when to speak, keeping me from drawing the wrong kind of attention.
+Stories circulated about Si Tai too. When a young man arrived from Brazil to learn Ving Tsun from her husband — without sharing a common language — she took him in. Through gestures of care and attention, she helped shape him into one of the art's Grandmasters. That man was Leo Imamura, my Sifu.
 
+My Kung Fu brother Natan Rosa tells a story from the opposite direction. During a trip to New York, Sifu Leo assigned him to prepare tea each morning at the Mo Goon. Natan brought the tea. Sifu didn't touch it. Day after day — no complaint, no correction, no instruction. Finally Natan noticed the tea served at restaurants was lighter than his. He'd been brewing it too dark. He adjusted. Sifu drank it without a word.
+
+That's feminine conduct in teaching: not correcting, not commanding — letting the student see the gap for himself.
+
+Sifu didn't correct him. He yielded and waited — let the gap between what Natan was offering and what was actually needed become visible on its own. That's feminine conduct in teaching: not commanding, not fixing, not asserting. Receiving, and trusting that the student can see for himself if you give him enough space.
+
+As with Siu Nim Tau, it took practice, observation, and patience. It took years before I could feel how timing, energy, positioning, and distance operate in real life — not just in forms or simulated fights. Slowly, my body started staying relaxed. My mind chose to wait — to read the room, to see how everyone moved before I stepped in.
 
 After years of practicing and studying Ving Tsun with this in mind, it was Vedanta that finally gave me the cue to act and a real target: my own ego.
 
