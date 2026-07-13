@@ -23,6 +23,8 @@ Si Hing 師兄 é o irmão mais velho Kung Fu. É aquele que foi aceito pelo si 
 
 Si fu 師父 expressa uma relação de parentesco cultivado, em que o aprendizado cria laços de família. O si fu não apenas ensina: acolhe, orienta e sustenta o crescimento do discípulo. O vínculo implica lealdade, cuidado recíproco e continuidade de linhagem. Ser si fu é ser líder de uma família Kung Fu e não apenas transmitir um conteúdo.
 
+Si Gung 師公
+
 Saam Mun designa uma estrutura tripla de acesso a um sistema, saber ou via. No contexto marcial, refere-se a três níveis de entrada — físico, funcional e interno.
 
 Mun paai designa um estilo ou linhagem transmissiva, definida por um critério interno, uma porta de entrada e uma responsabilidade de continuidade.
@@ -39,5 +41,4 @@ jiu sik — dispositivos corporais de combate simbólico — expressam o desenvo
 
 To Dai 徒弟 (tú dì), designa o aluno de um si fu ao ingressar na Família Kung Fu. Indica aquele que segue um caminho e marca a posição filial na casa do mestre. O to dai assume compromisso, lealdade e continuidade de linhagem. Aprender como to dai é crescer dentro de uma relação, não apenas adquirir técnicas.
 
-
-
+Yam Cha 飲茶
