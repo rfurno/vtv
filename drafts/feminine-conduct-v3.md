@@ -78,6 +78,8 @@ That pull is the teapot in your hand. That pull is the message you’ll never se
 You’ll feel something has shifted when you stop checking whether you’re doing it right.
 Share what you notice in the comments. If the waiting feels impossible, say that. If something opens up, say that too. The resistance is where the work happens.
 
+All that exists in the world of experiences vanishes the moment it is questioned. Sometimes the thing that needs questioning is you.
+
 ## If You Are Curious
 Huangdi Sijing ([Four Political Treatises of the Yellow Emperor](https://a.co/d/0ij8ibEV))
 [Śāradā Devī](https://vedanta.com.br/blog/sarada-devi-mae-santa-ensinamentos) (in Portuguese)
