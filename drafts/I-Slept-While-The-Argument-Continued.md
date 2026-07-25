@@ -31,13 +31,31 @@ The discomfort kept returning until one of the Vedanta classes gave it a clear s
 
 On one side I want to be free. On the other I keep trying to control people — their opinions, their conclusions, the version of the story they are allowed to hold. What I understood from Acharya Jonas’s teaching was simple and hard: I cannot be free while I am still trying to control what other people think and say.
 
-Something in me recognized it immediately. The late-night research, the perfect counter-narrative, the need to interrupt, the quiet lift of being the one who saw more clearly — all of it was a form of control. My energy was pointed outward, managing other minds instead of attending to my own life.
+Something in me recognized it immediately. The late-night research, the perfect counter-narrative, the need to interrupt, the quiet lift of being the one who saw more clearly — all of it was a form of control. My attention was almost always aimed outward — at other people's views, not at my own life.
 
 Then came a harder recognition.
 
 My father was nearing ninety, his health slipping quietly in the background while I fought battles in the foreground. During a FaceTime call I saw his smile open as we talked about projects he and I used to do together — a smile I had not seen in months. I had been too busy winning arguments with strangers.
 
 If so much of my attention was spent correcting, arguing, and sorting the world into better and worse versions of the truth, what was left for the people who actually shared my days — and for the work that was mine to do?
+
+## Respecting the Centerline
+
+In Ving Tsun, Sifu Leo taught me to respect the centerline while practicing with a Si Dai — a younger Kung Fu brother. For example, the Si Dai’s hand stretches out to meet mine on the centerline. That hand has its own path. My job is not to push it aside to claim dominance. I meet what is there, feel the direction, and work from that reality.
+
+For a long time I failed to apply the same principle outside the Mo Goon, where Kung Fu life is lived and learning happens as a result — not just a training hall.
+
+I would meet someone’s opinion the way a beginner meets force — by trying to overpower it with a better argument, a clearer narrative, a more complete set of facts. I treated other people’s views as something to correct rather than something to receive first.
+
+There is an important difference I had overlooked.
+
+When I train with a Si Dai, he has already placed himself in the position of student. By showing up and putting out his arms, he has asked for assistance and feedback. The relationship is explicit.
+
+The consent is clear.
+
+My neighbor at breakfast never asked for a lecture. Neither did the person across the table, or the stranger in a comment thread. They were not my students. They had not invited me to reshape their understanding.
+
+Respecting the centerline in the Mo Goon was never only about technique. It was practice in meeting another person where they actually are, instead of where I thought they should be. I am only beginning to bring that same discipline into ordinary conversation.
 
 ## What the Change Looks Like
 
@@ -54,23 +72,6 @@ That capacity is beginning to show up in ordinary life. I scroll past complaint 
 At home the change is quieter still. My wife is happier when I come to bed without the laptop. Some nights I read a chapter out loud to her and keep going until she falls asleep.
 
 I still fail at this regularly. The gap between impulse and action is real, but it is not always wide enough. Some days the old machinery runs before I notice it. The difference is that I now recognize the cost more quickly, and I am less willing to pay it.
-
-## Respecting the Centerline
-In Ving Tsun, Sifu Leo taught me to respect the centerline while practicing with a Si Dai — a younger Kung Fu brother. For example, the Si Dai’s hand stretches out to meet mine on the centerline. That hand has its own path. My job is not to push it aside to claim dominance. I meet what is there, feel the direction, and work from that reality.
-
-For a long time I failed to apply the same principle outside the Mo Goon, where Kung Fu life is lived and learning happens as a result — not just a training hall.
-
-I would meet someone’s opinion the way a beginner meets force — by trying to overpower it with a better argument, a clearer narrative, a more complete set of facts. I treated other people’s views as something to correct rather than something to receive first.
-
-There is an important difference I had overlooked.
-
-When I train with a Si Dai, he has already placed himself in the position of student. By showing up and putting out his arms, he has asked for assistance and feedback. The relationship is explicit.
-
-The consent is clear.
-
-My neighbor at breakfast never asked for a lecture. Neither did the person across the table, or the stranger in a comment thread. They were not my students. They had not invited me to reshape their understanding.
-
-Respecting the centerline in the Mo Goon was never only about technique. It was practice in meeting another person where they actually are, instead of where I thought they should be. I am only beginning to bring that same discipline into ordinary conversation.
 
 ## What Remains
 The arguments still exist. People still hold views I find incomplete or wrong. The old machinery still starts from time to time. What has changed is the amount of my life I am willing to hand over to them.
