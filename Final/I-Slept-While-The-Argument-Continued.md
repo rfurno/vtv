@@ -17,11 +17,11 @@ My wife asked me not to start another debate as we prepared to receive neighbors
 
 The late nights still happened, but they started to feel more expensive. The research still felt urgent, yet the urgency itself was beginning to tire me. I would notice the pull to open another tab or draft another reply and, for a second, see it as a pull rather than a duty.
 
-The same pattern showed up in ordinary conversation. Someone would mention something recent and the old machinery would start. I would interrupt them mid-sentence, already certain I had the better version of the story. The quiet lift of correcting them still felt good.
+The same pattern showed up in ordinary conversation. Someone would mention something recent and the old machinery would start. I would interrupt them mid-sentence, already certain I had the better version of the story. Correcting them still gave me a quiet lift.
 
 Only now there was a small gap between the impulse and the action. In that gap I could feel how much energy the whole project was costing.
 
-I still argued. I still researched. I still went to bed late. But the story I told myself about why it mattered was beginning to fray. The sense of being on a team, of fighting for something larger, no longer covered the simpler fact: my attention was almost always pointed outward, and the people closest to me were receiving what was left.
+I still argued. I still researched. I still went to bed late. But the story I told myself about why it mattered was beginning to fray. The sense of being on a team, of fighting for something larger, no longer covered the simpler fact. My attention was almost always pointed outward, and the people closest to me were receiving what was left.
 
 The small pause that came from letting someone finish — from receiving instead of preparing the reply — was starting to feel better than the old satisfaction of being right.
 
@@ -29,9 +29,9 @@ The small pause that came from letting someone finish — from receiving instead
 
 The discomfort kept returning until one of the Vedanta classes gave it a clear shape.
 
-On one side I want to be free. On the other I keep trying to control people — their opinions, their conclusions, the version of the story they are allowed to hold. What I understood from Acharya Jonas’s teaching was simple and hard: I cannot be free while I am still trying to control what other people think and say.
+I want to be free but I keep trying to control people — their opinions, their conclusions, the version of the story they are allowed to hold. What I understood from Acharya Jonas’s teaching was simple and hard: I cannot be free while I am still trying to control what other people think and say.
 
-Something in me recognized it immediately. The late-night research, the perfect counter-narrative, the need to interrupt, the quiet lift of being the one who saw more clearly — all of it was a form of control. My attention was almost always aimed outward — at other people's views, not at my own life.
+Something in me recognized it immediately. The research at midnight. The counter-narrative I'd been perfecting. The need to interrupt, and yes — the satisfaction of being the one who saw more clearly. All of it was control. My attention was aimed outward, at other people's views, not at my own life.
 
 Then came a harder recognition.
 
@@ -41,7 +41,7 @@ If so much of my attention was spent correcting, arguing, and sorting the world 
 
 ## Respecting the Centerline
 
-In Ving Tsun, Sifu Leo taught me to respect the centerline while practicing with a Si Dai — a younger Kung Fu brother. For example, the Si Dai’s hand stretches out to meet mine on the centerline. That hand has its own path. My job is not to push it aside to claim dominance. I meet what is there, feel the direction, and work from that reality.
+In Ving Tsun, Sifu Leo taught me to respect the centerline while practicing with a Si Dai — a younger Kung Fu brother. The Si Dai’s hand stretches out to meet mine on the centerline. That hand has its own path. My job isn't to push it aside to prove I know more Ving Tsun. I meet what is there, feel the direction, and work from what we share at that moment.
 
 For a long time I failed to apply the same principle outside the Mo Goon, where Kung Fu life is lived and learning happens as a result — not just a training hall.
 
@@ -65,7 +65,7 @@ I still feel it when someone says something I find incomplete or wrong. The coun
 
 In conversation I now wait more. I let the other person finish. Sometimes the perfect reply I was preparing is no longer needed — the talk has already moved on. Other times I simply choose not to send the message I spent twenty minutes drafting.
 
-Acharya Jonas spoke of dama — not the rejection of impulse, but the capacity to feel an urge and still choose not to act. The difference between automatic reaction and a conscious response.
+Acharya Jonas spoke of dama — not rejecting the urge, but being able to feel it and still not act on it. Automatic reaction versus choosing a response.
 
 That capacity is beginning to show up in ordinary life. I scroll past complaint pieces and hero-villain stories more quickly. I notice the old charge and, more often than before, put the phone down. 
 
@@ -78,7 +78,7 @@ The arguments still exist. People still hold views I find incomplete or wrong. T
 
 I no longer treat every disagreement as a problem I am responsible for solving. I no longer treat every conversation as a chance to correct the record. The energy that used to go into managing other people’s minds is slowly returning to the people who actually share my days, and to the work that is mine.
 
-I cannot be free while I am still trying to control what other people think and say. The sentence remains active in me. It is not a conclusion I have finished living. It is a direction I am still learning to follow.
+I cannot be free while I am still trying to control what other people think and say. I still live with that sentence. It is not a conclusion I have finished living. It is a direction I am still learning to follow.
 
 Some nights I still feel the pull to open the laptop and keep arguing. More often now, I leave it closed. I pick up a book. I read out loud until the room grows quiet.
 
