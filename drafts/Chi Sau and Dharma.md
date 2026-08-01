@@ -38,17 +38,17 @@ I watched the same erosion happen in other parts of my life—especially in conv
 
 ## Empty Talk
 
-I had tools for conversation. Good ones. Fierce Conversations was one of the most effective. In corporate settings they worked. At home they felt wrong—forceful, slightly bitter, out of place between husband and wife.
+I had tools for conversation. Good ones. Fierce Conversations was one of the most effective. At work they worked. At home they felt wrong—forceful, slightly bitter, out of place between husband and wife.
 
 I could close an argument. What I lacked was measure. Something like Faan Sau: a way of moving that kept the relationship alive while the words were still being exchanged.
 
-Without it, I kept winning. And the more I won, the more distance I created. I didn’t notice the cost until much later—when the conversations had already grown thin and I could see the fatigue on my wife’s face. She told me she was tired of discussing things with me because I was always out-reasoning her instead of listening. I could feel her body tighten when we were having any kind of discussions. I knew I was causing it.
+Without it I kept winning. And the more I won, the more distance I created. I only noticed the cost later, when the conversations had grown thin and I could see the fatigue on my wife’s face. She told me she was tired of discussing things with me because I was always out-reasoning her instead of listening. I could feel her body tighten whenever we argued. I knew I was causing it.
 
 ## Dharma
 
 What I lacked had a name.
 
-In class Acharya Jonas offered one meaning of Dharma as what is harmonious to do in the moment. Not the correct opinion. Not the winning move. What sustains the exchange instead of ending it.
+In class Acharya Jonas offered one meaning of Dharma: what is harmonious to do in the moment. Not the correct opinion. Not the winning move. What sustains the exchange instead of ending it.
 
 It is the same logic as Faan Sau.
 
@@ -57,12 +57,12 @@ Measure is not passivity. It is the capacity to know when to apply force, when t
 I began to notice the difference in real conversations. Moments when pressing forward was right. Moments when the only correct move was to stop, accept what she was saying, and receive it fully. The cost of getting it wrong had already been named more than once:
 
 “Please do not turn breakfast with the neighbors into a debate.”  
-“I’m not beating around the bush. I need time to think what I’m going to say to you.”  
-“I wish you had as much patience with me as you have with your coworkers.”
+“I’m not beating around the bush. I need time to think about what I’m going to say to you.”  
+"I feel like I’m always negotiating with you.”
 
 I had been treating conversation the way I used to treat Chi Sau: as something to win. The tools were sharp. The cost was the relationship itself.
 
-What Sifu did for my Chi Sau, Acharya began to do for these conversations. After so many years I had started to take them for granted. I am only now learning to treat them as a living exchange that has to be kept alive while it is happening.
+What Sifu did for my Chi Sau, Acharya began to do for these conversations. After so many years I had started to take them for granted. I am only now learning to treat them as a living exchange that has to be kept alive.
 
 The conversation is the relationship. That line from Fierce Conversations finally makes sense.
 
