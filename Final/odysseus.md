@@ -1,0 +1,6 @@
+I watched Nolan’s Odyssey and liked it. When it ended I wanted the actual poem.
+I’m two lectures into the free Hillsdale course taught by Benedict Whalen. I bought the Fagles translation they recommend and I’m re-watching the lectures while I wait for the book to arrive.
+The first surprise is how the poem opens. The film puts Odysseus on screen right away. Homer does not. He starts on Ithaca: the suitors eating the household, a nineteen-year-old son who has never known his father, and a goddess who has to push the boy into action. Odysseus is still far away. The poem leaves a lot to digest before the famous action begins.
+The best surprise is the name itself. One of the older explanations connects Odysseus to a verb that means both “to suffer pain” and “to inflict pain.” The man of twists and turns is also the man who causes trouble and receives it.
+In the first lecture Zeus complains that men keep blaming the gods for the suffering they bring on themselves. The line sits there without extra commentary.
+The lectures are short and full of beautiful images from paintings and other translations. The course is free.
