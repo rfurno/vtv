@@ -2,132 +2,114 @@
 Samba Shiva
 https://us06web.zoom.us/j/86384829259?pwd=JiE8XbkrFKmux40zS5JU6UqTtWJYhH.1
 
+2026-08-11
+Professor, a noção de que há inteligência em toda a criação mas que percebemos os seres vivos diferentes de uma pedra é apenas uma etapa do entendimento? E que mais à frente no estudo essa idéia de matéria inanimada vs. seres vivos vai ser abandonada?
 
-2026-05-12
+“Bu…” local de experiência. Há outras 13 dimensões de existência.
+
+Verso 5
+￼
+Compreender o valor de estar errado
+
+Verdade ou mentira
+Consciente ou inerte
+Felicidade ou sofrimento
+Tudo isso é inútil
+
+Não faz sentido tentar determinar o que é bom ou ruim, felicidade ou tristeza: É uma decisão a ser feita.
+
+Inteligente ou ignorante. Mecanismo ruim que achar quem é diferente é inferior/ignorante e quem é igual é superior/inteligente.
+
+Não deve existir dentro da mente o “eu” aparecer. Apenas aparece quando, por exemplo, “eu quero guaraná”. Mas não no relacionamento. Há que se acessar a mente coletiva da família, da empresa, etc.
+
+Ter visão sem divisões, entre pessoas, de nenhum tipo. Onde a mente não tem desculpa pra fazer algo, se comportar de uma certa forma.
+
+Sem o foco do material.
+
+Aquilo que é mais desejável por todos é a união.
+
+
+
+
+
+2026-08-04
+Pergunta: Prof, tenho ainda dificuldade em assimilar o conhecimento sobre morte. Tenho que tomar a decisão sobre um animal de estimação muito querido. A dificuldade vêm em tentar separar o que é meu apego, ego, o que realmente estou tentando fazer o que é o melhor para o animal. Tenho feito japamala e puja pra ajudar a esclarecer, mas vejo que esse conhecimento sobre a morte ainda não assimilei.
+Resposta: Aliviar a dor também é punham.
+
+
+Verso 4
 ￼
 
+Primeira etapa da espiritualidade: harmonizar a vida
+Depois vem Viveka pra permitir um entendimento mais profundo da conexão entre mundo, eu, e criador.
 
-2026-05-05
+Causa e efeito não podem ser desconexos: o efeito carrega a qualidade da causa (pote feito de barro carrega o peso do barro)
 
-￼
+Relação do criador com a criação é como a aranha e a teia. A teia vem da aranha.
+Bramadi: o ser desse universo, o corpo dele é o universo (?)
 
-Essa necessidade de ser especial tem que ser abandonada.
+2026-07-22
+Idolatria: antes de vedanta é impossível uma pessoa não ser idólatra. Criamos na cabeça um lugar em que uma pessoa é perfeita. Olhamos pro lado quando essa pessoa comete erros. Família, políticos etc
 
-
-￼
-O seu entendimento do seu corpo, do seu eu começa a ser questionado.
-
-
-2026-04-28
-
-
-2026-04-21
-
-A consciência é atemporal, não há nada antes nem depois dela.
-Gunas são as qualidades que tudo tem (corpo, mente etc) divididas em Rajas, tamas, etc
-Dosha quando se olham essas qualidades do ponto de vista do seu próprio corpo
-
-Vibuti é uma cinza dos rituais védicos (sua puja pessoal)
-
-
-2026-04-14
-
-￼
-Na espiritualidade cada pessoa tem sua especialidade
-A força e Vedanta está na clareza
-
-Sandalia do mestre: conhecimento
-
-Entender que a chave da espiritualidade é conhecer realmente quem eu sou
-Quando houver esse entendimento é que começa a transição pro “saniassa”
-
-Estar focado em entender ब्रह्म
-
-
-￼
-
-Processo de estudo
-Tem que entender o significado da frase/palavras
-
-
-2026-04-07
-
-￼
-
-
-2026-04-3
-Satsanga - संग união/reunião; सत्  verdade
-
-“Varnas” (“वर्ण”) - vocação
-os quatro tipos de mentes
+É possível poder conversar com as pessoas mas sem estar na posição de aceitar qualquer coisa.
 
 ￼
 
-भवसुखे na felicidade mundana
-दोषो os defeitos, os problemas
-अनुसन्धीयतां essa pessoa está vendo sempre (porque ela amadureceu)
+A inteligência é a causa material do universo. Pois não há outro lugar pra ela estar (dicotomia entre consciência e matéria
 
-A mente de um ghrihastra maduro não é tão iludido por aquilo que as pessoas tem conceito de que é felicidade 
-￼
- Consegue desenvolver uma visão objetiva sobre as coisas da vida; onde o material não importa mais; bom momento com família, como pessoa etc
-Consegue fazer o que deve ser feito na vida
+Causa e efeito <=> forma e substância
 
+Relação progressiva de ser dentro de ser. Assim o universo é repleto de vida.
 
-￼
- Aparece na mente o desejo de auto-conhecimento
+A célula: “tenho o desejo de produzir ATP”. Esse desejo não vem dela. Vem do ser maior, a pessoa, que tem o desejo de correr.
+Se a célula decide não fazer o que precisa fazer: papam
 
-￼
-Abandonar o conforto
-Sai desse lugar onde todo mundo te diz que vc é incrível, onde todo mundo te agrada
-Não é pra ir atrás das coisas que te fazem mal, é pra ir atrás das coisas que era pra te fazer bem mas te faz sentir mal
+Uma obra necessita de um mestre de obras.
 
+2026-07-14
 
-2026-03-24
+Qualificação: se humildar
+Reverter o movimento da mente que julga uma pessoa por ela não me agradar
 
-ॐ palavra cunhada pelos Vedas pra falar sobre a causa da criação. Palavra cunhada pra invocar essa benção. O som primordial quando o Universo se manifesta.
+Identidades fortes levam à se fechar pra alguns assuntos
 
+Quando as emoções se tornam muito fortes, o intelecto para de funcionar.
 
-“गुन”
-“Satua” predominante -> pensar
-“Shudra” gosta de fazer; eles são a base da sociedade
-“Radias” e “Tamas” projeto; construindo coisas
-
-￼
-Que o karma seja seguido de acordo com a sua responsabilidade
-
-2026-03-23
-
-Sadaka buscador
-Sadia o que ele quer
-Sadana sabendo o que o buscador sabe o que quer, ele encontra sadana
-
-“Bramhachari” primeira fase de vida 0-20
-“Grihastra” sustentando uma casa, trabalho 20-50
-“Vanaprasta” (“वनप्रस्त”) morar na floresta 50-80
-“Saniassa” despedindo do mundo
-
-
-￼
-Que os Vedas (corpo de conhecimento da humanidade) seja estudado (अधियतां) constantemente (नित्यम्)
-Disciplina do estudo; estude sempre
-Saber se colocar na posição de aluno
-
+Elucubrar a transformação pessoal ao invés de elucubrar o entendimento intelectual.
 
 ￼
 
-धर्म tem 3 significados
-Aquilo que é correto/certo (da raiz “aquilo que sustenta”)
-O que sustenta a sua jornada espiritual (missão de vida)
-Aquilo que naquele momento é harmônico de ser feito
+Medo da morte: não me vejo como alguém que cumpriu o que precisava ser cumprido. É o outro lado da moeda da incompletude da pessoa.
 
 
-
-
-2026-03-10
+2026-07-07
 
 ￼
+Todos os objetos são nomes e formas, temporários
+As substancias também são objetos, temporárias.
 
- श्रीशङ्कराचार्य
-“Panchakam” cinco versos
+Se diz que o brinco não existe, quando se estabelece a existência do ouro.
+Formas necessitam uma substância.
 
-“Sadana” pra remover a dor da auto-condenação é o conhecimento real do sujeito
+Mas os nossos órgãos de percepção	 só consegue ver a forma, não a substância (por isso os órgãos de percepção não consegue chegar ao que é fundamental da existência)
+Através do discernimento/clareza, o que os órgãos de percepção veem na realidade a substância e não a forma.
+
+Barro de pote, ao invés de pote de barro.
+
+A existência é a causa fundamental do universo. E ela é una.
+
+Pergunta:
+Quando o pote quebra, a forma do pote deixa de existir, quando eu atribuo a forma de “cacos” ao pote.
+Como entendo essa lógica aplicada a coisas como corpo sutil e karma?
+
+2026-06-30
+
+Darshana - visão
+
+O Estudo do Vedanta precisa sair do lugar de estudo intelectual pra entrar no dia-a-dia da vida
+
+Sat
+Existência/Consciência
+
+
+

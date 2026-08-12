@@ -2,13 +2,86 @@
 Bhadrakali
 https://us06web.zoom.us/j/89232982806?pwd=hlqkpVmO5R4gOSFb0K4snG3LslwdLj.1
 
+2026-08-06
+Reclamar não traz crescimento
+
+Tenho necessidade de infantilização. Fazer piada o tempo todo
+
+Pra ter a capacidade de escutar Vedanta é preciso ter um “mérito sobrenatural”
+
+Ati shaia puniam
+
+
+2026-07-30
+
+￼
+
+तत् - individualidade
+त्वम् - Ishuara
+
+Apreciação (não aceitação, aceitação é apenas uma etapa)
+
+Ao invés de eu me conectar com a verdade do momento, eu me conecto à verdade da minha mente e forço as outras pessoas à minha verdade.
+Ninguém veio pra esse mundo pra te agradar
+
+Auto-condenação; o sofrimento vem com achar que deveríamos ser diferente do que somos
+E procuro que essa dor vá embora com as pessoas me elogiando
+
+Problemas fundamentais; não tem a ver com a minha história; não são específicos meus; não vou conseguir resolver com terapia etc, apenas com o conhecimento.
+
+Se na física/matemática eu me apoio no conhecimento anterior, na espiritualidade eu tenho que ser inteligente e também me apoiar no conhecimento de milhares de anos.
+
+Parampara - tradição de conhecimento
+
+2026-07-16
+Pergunta:
+Recentemente recebi a notícia de que o cachorro da minha família, de 14 anos, está com câncer. Após os primeiros momentos de surpresa, tristeza e dor, tentei questionar tudo isso para entender o que é normal e o que é apego — o que devo deixar se desenrolar e do que devo me desapegar. Tenho usado esse momento para tentar compreender melhor o que aprendi, mas há muita confusão de emoções, talvez por ser muito recente. Tenho receio de suprimir essas emoções com uma falsa racionalização e acabar tomando a decisão errada: seja aliviar o sofrimento dele de forma prematura, seja postergar por conta do meu apego. Estou tentado buscar essa clareza fazendo japamala pedindo clareza pra mim mesmo. Este é o caminho certo?
+
+Sankia (contadores) -> matéria é प्रकृति, consciência é पुरुष; nessa linha a consciência é uma realidade paralela; como o Puruṣa पुरुष atuaria sobre a Prakṛti प्रकृति? Essa teoria é descartada pois não tem consistência lógica.
+
+￼
+
+A existência que é a base do mundo material e a consciencia que é o que está por detrás do que é um ser inteligente é a mesma coisa. Não são duas coisas separadas.
+
+Eu não sou “parte” de tudo. Eu sou tudo.
+
+A consciencia é a matéria prima de tudo que existe
+
+Cada um precisa desamarrar sua vaca
+
+
+2026-07-09
+
+Quando o ego bloqueia o ouvir é que existe a dificuldade em ver que esquerda/direita, que imagem/Deus acreditar faz diferença.
+
+Por um lado queremos ser livre e por outro lado queremos controlar as pessoas. Não há como ser livre enquanto tentarmos controlar as pessoas.
+
+“Vamos fazer uma lei pra proibir discurso que desagrada a alguém”. Quem vai definir o que desagrada a alguém?
+
+Onde está a dificuldade é la que eu devo ir buscar a minha conexão. Não tenho que me apegar apenas às formas de deus que eu mais gosto.
+
+A causa de tudo que existe: Deus
+Caso contrário, então teríamos que ter a crença em poderes mágicos que decide criar tudo.
+
+Como consigo ter uma vida saudável sem permitir outras pessoas terem opinião diferente da minha?
+A minha energia está virada pra fora, pro julgamento das outras pessoas. Mas a minha parte dessa história?
 2026-07-02
 ￼
-Sat: existência, busca pela verdade (como pessoa), auspicioso/aquilo que é pro bem
+सत् : existência, busca pela verdade (como pessoa), auspicioso/aquilo que é pro bem
+Verdade é um caminho pra compreender a existência
 
-Vulnerabilização, valorização pessoal, “bhakti”
+Estudo de Vedanta: caminho de humilhação
+
+Escolhas que causam desarmonia
+Desapego é a renúncia da desarmonia
+
+Vulnerabilidade (humildação, ficar emocionalmente aberto) quando os desafios e crises se aproximam
+Valorização pessoal - só pode ocorrer após a vulnerabilização, assumindo os erros mas também o que tenho de bom
+भक्ति “bhakti” - dar vazão a essas duas forças; se eu reconheço que eu canto bem, eu vou agradecer a deus e contribuir pro mundo. E quando vem algo difícil, eu vou apreciar a ordem divina. Pedir misericórdia pro universo (justiça se pede pro juiz)
 
 Moksha é esse momento em que a mente não tem mais nada do que está evitando. 
+
+O conhecimento que não é acompanhado da humildade não é conhecimento.
 
 2026-06-11
 Consciencia é existencia e existencia é consciencia
@@ -16,6 +89,10 @@ Consciencia é existencia e existencia é consciencia
 
 2026-06-04
 
+
+￼
+
+￼
 
 
 2026-05-28
