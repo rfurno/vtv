@@ -1,5 +1,11 @@
 # Vamos Passear?
-# O Que Amor Verdadeiro Me Ensinou Sobre a Vida
+# O Que Jack Me Ensinou Sobre Viver
+
+Jack saiu da cama baixa ao lado da cadeira e encostou o focinho na minha perna. Eram nove da manhã. Eu ainda estava na terceira ligação do dia.
+Antes de eu terminar de desligar ele já estava na porta.
+O cheiro de outono bateu forte assim que abri. Eu não tinha sentido aquilo desde que sentei para trabalhar, ainda escuro.
+Cada folha caída, cada pedaço de chão: uma cheirada curiosa. O mesmo caminho de sempre, e tudo parecia novo.
+Agachei para ficar na altura dele e fotografar as folhas do ponto de vista dele.
 
 Aprendi:
 Hora de parar
