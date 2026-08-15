@@ -1,5 +1,19 @@
-# Vamos Passear?
-# O Que Jack Me Ensinou Sobre Viver
+# Let's Go For a Walk
+# Learning Vedanta Under Pressure
+
+Jack was fourteen. The diagnosis came in July.
+
+Acharya Jonas has said many times that the path is not a cave, not the couch, and not the ability to use the right technical terms. Learning happens at work, with the angry neighbor, with the needy friend, with family, and when the body of the animal who lived with you for eleven years begins to fail.
+
+
+
+
+
+
+
+
+
+
 
 Jack saiu da cama baixa ao lado da cadeira e encostou o focinho na minha perna. Eram nove da manhã. Eu ainda estava na terceira ligação do dia.
 Antes de eu terminar de desligar ele já estava na porta.
@@ -7,19 +21,21 @@ O cheiro de outono bateu forte assim que abri. Eu não tinha sentido aquilo desd
 Cada folha caída, cada pedaço de chão: uma cheirada curiosa. O mesmo caminho de sempre, e tudo parecia novo.
 Agachei para ficar na altura dele e fotografar as folhas do ponto de vista dele.
 
-Aprendi:
-Hora de parar
-Movimento é melhor que elogio
-Observar atentamente
-Mudar de perspectiva
-Vizinho que nem deu bola
-Comer quando tenho fome
-Perceber a raiva ou tristeza de longe
-Sentir cheiros como mensagens não verbais
-Há felicidade e amor em ficar quietos um ao lado do outro.
-Perdoar
+Naquele caminho de sempre que de repente parecia novo, aprendi sem palavras.
+
+Movimento é melhor que elogio.
+
+Parado alí, corpo virado pra rua e cabeça virado pra mim. Sem palavras ele expressava que precisamos de um passeio longo e não apenas sair pra urinar.
+
+É fácil não deixar um vizinho mau humorado que não gosta de cachorros estragar o passeio.
+
+Há felicidade em ficar quietos um ao lado do outro.
+
+Perdoar sem esperar nada em troca.
 
 Ensinou-me a orar.
+
+
 
 ## Jack
 Vivi com o Jack 11 anos dos seus 14 de vida.
