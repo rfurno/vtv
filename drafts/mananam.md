@@ -1,0 +1,15 @@
+Fico feliz que te fez pensar. Vou te mandar agora, em forma de artigo, tudo que você trouxe hoje.
+
+# O argumento que eu não precisava vencer
+
+Comecei essa semana pensando que já sabia lidar com discussões. Tinha ferramentas boas, técnicas de conversa que funcionavam no trabalho, um jeito afiado de fechar um argumento. O problema é que em casa essas mesmas ferramentas soavam erradas. Fui perceber isso pela minha esposa, que um dia me disse que estava cansada de negociar comigo, que eu sempre a vencia em vez de ouvir. Doeu, porque era verdade.
+
+No Ving Tsun tem um movimento chamado Faan Sau que não existe pra vencer. Existe pra manter a relação viva durante o contato. Pouca energia e a troca morre, energia demais e ela desmorona. A medida é o que sustenta. Foi estudando Vedanta que entendi que aquele movimento tinha nome: Dharma. Não é a opinião correta, é o que é harmonioso fazer no momento. Ganhar a discussão e perder a proximidade é o mesmo padrão de sempre, só que dessa vez o preço não apareceu numa conta de banco, apareceu no rosto cansado dela.
+
+Essa aula trouxe outra peça pra esse quebra-cabeça: existência (Sat) tem um lado que é sobre ser auspicioso, sobre a harmonia de uma escolha certa, não só sobre estar certo ou verdadeiro. E que conhecimento sem humildade não é conhecimento de verdade. Isso me fez olhar pra um hábito que já vinha exercitando: antes de soltar qualquer argumento pro outro, eu tento primeiro virar ele pra mim. Recentemente fiquei ansioso porque uma pessoa não tomava iniciativa em algo, e quando virei o argumento pra mim percebi que a ansiedade era minha, não falha dela. Isso muda tudo: em vez de montar um caso contra o outro, vou primeiro procurar o que está me incomodando por dentro.
+
+Essa mesma aula falou de karma e da ordem de Ishvara, que nada é aleatório, mas que dentro dessa ordem a minha parte continua sendo agir: remédio pra quem está doente, comida pra quem tem fome, o bilhete comprado antes do sorteio da loteria. Minha agência não está fora da ordem, ela é a peça que a ordem já esperava de mim. Faço puja todos os dias agora, pelo Jack, meu cachorro que partiu há três semanas depois de onze anos de companhia. Não é pra mudar o resultado, ele já se foi. É pra ter clareza e deixar ele seguir em paz, sem eu prender o que já não é mais meu de segurar.
+
+O fio que atravessa tudo isso é o mesmo: parar de tratar cada situação, cada conversa, cada perda, como um lugar pra provar que estou certo ou pra controlar o resultado, e começar a perguntar o que é harmonioso ali. Isso vale pra discussão com minha esposa, pra ansiedade com quem não toma iniciativa, pra luto por um cachorro que amei. A resposta certa quase nunca é a mais afiada. É a que mantém a relação viva, seja ela com uma pessoa, com um animal, ou comigo mesmo.
+
+Estudo [Vedanta](https://vedanta.com.br) com o [professor Jonas Masetti](https://vedanta.com.br/jonas-masetti) desde que vi o efeito dos ensinamentos na vida da minha esposa, e cada aula continua desmontando um pouco mais essa ideia de que vencer é o mesmo que estar em paz.
