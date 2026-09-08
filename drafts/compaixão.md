@@ -1,6 +1,9 @@
-um mês atras
+## I Don't Know F@&# About S$#@
 
-logo após a aula de manhã, o mundo virou de ponta cabeça (ligação do vet)
+9am and Acharya is recinting the closing mantra. Beautiful and deep lecture about harmonious choices.
+
+Then the phone rang. And the world seemed to be collapsing with all the air sucked out of it.
+
 
 matéria da aula daquele dia:
 Reclamar não traz crescimento
