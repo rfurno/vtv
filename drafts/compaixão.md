@@ -1,14 +1,15 @@
-## I Don't Know F@&# About S$#@
+## The Class Before the Call
 
-9am and Acharya is recinting the closing mantra. Beautiful and deep lecture about harmonious choices.
+9 a.m. Acharya is reciting the closing mantra.
+The class that morning was simple: complaining does not bring growth.
 
-Then the phone rang. And the world seemed to be collapsing with all the air sucked out of it.
+Then the phone rang.
+
+I was on the stairs. My pulse had no business being that high. My wife already had the phone. I saw her face before I heard a word.
 
 
 matéria da aula daquele dia:
 Reclamar não traz crescimento
-
-Tenho necessidade de infantilização. Fazer piada o tempo todo
 
 Pra ter a capacidade de escutar Vedanta é preciso ter um “mérito sobrenatural”
 

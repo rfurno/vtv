@@ -2,6 +2,92 @@
 Bhadrakali
 https://us06web.zoom.us/j/89232982806?pwd=hlqkpVmO5R4gOSFb0K4snG3LslwdLj.1
 
+2026-09-10
+Versos 29 e 30
+
+￼
+
+2026-09-03
+
+Verso 28
+Cargas emocionais são como bolhas de sabão que vão subindo. Olhando da superfície só se vê a bolha na superfície.
+
+Paradigmas que sustentam o mundo relativo.
+Buddhi बुद्धि https://vedanta.com.br/glossario/buddhi
+
+Se não existem o entendimento do que eu sou, só sobram as máscaras.
+Preciso retirar a realidade das máscaras pra acessar o que é mais profundo.
+Tentar se livrar de uma máscara sem o conhecimento, ativa outra máscara.
+
+Qual é a minha natureza?
+Eu sou livre da morte, livre de nascimento, totalmente completo, eu sou a consciência, eu sou a felicidade.
+
+Vida “virtuosa” (leve, psicológico maduro, vivendo com saúde)
+
+Máscara decide a sadhana (mas nunca vai escolher uma sadhana que vai neutralizar a própria máscara)
+A neutralização só acontece em grupo, nunca sozinho.
+
+O que faz a gente superar essas máscaras: estar dentro de uma estrutura que tenha luz. Estar inserido numa comunidade, viver numa comunidade onde haja luz, clareza sobre esses assuntos (mesmo que não use a mesma terminologia). Pra que cada um possa ajudar um ao outro derrubar as máscaras.
+
+Sem estar inserido numa comunidade, esse conhecimento é como um peixe fora d’água que não tem como sobreviver. Não há como remover as máscaras. Estar inserido em uma comunidade, o estudo se torna algo integrado (em que não são apenas peças avulsas de um quebra-cabeça como um Frankenstein). Todas as coisas apontam na mesma direção e aprendemos um com o outro.
+
+
+Preciso viver uma vida espiritualizada é o começo da história. A idéia é que a vida espiritual engula a vida toda, tudo é espiritual. Descansar, se divertir, estar com família etc tudo é espiritualidade (sem estar num lugar egoísta onde “este é o meu mundo”).
+
+
+2026-08-20
+
+￼
+A ignorância não vem dando explicação.
+
+O porque eu errei não diminui a dor de ninguém. Não tenho que explicar porque errei pois não serve pra nada. O que serve é reconhecer na outra pessoa a dor que eu causei. Um entendimento do que eu fiz que representa dentro da outra pessoa.
+
+Quando eu fizer uma investigação do que aconteceu, esse é um trabalho investigativo sobre mim mesmo. Onde aprendo nuances sobre mim mesmo. Descubro pistas sobre mim mesmo.
+
+Quando eu assumo a ignorância, o mundo vira ao contrário. Eu começo a ir onde eu tenho dificuldade pra investigar e resolver essa dificuldade.
+
+A consciência ilumina o que eu sei e o que eu não sei.
+O sujeito observa o personagem.
+A consciência está em outro nível de realidade do conhecimento e a ignorância.
+
+Precisamos de um espelho de fora pra vermos o que precisamos aprender.
+Se a consciência é livre da ignorância, o que resta pra aprender: só a apreciação da consciência.
+
+2026-08-13
+Pergunta na aula: Prof, na ultimate aula vc falou sobre Atishaya Puṇya (अतिशय पुण्य). Parece que o ego fica tentando sabotar o estudo quando me vanglorio o quanto já aprendi com vedanta e como eu já consigo resolver problemas no meu dia a dia. Pergunta: Será que essa confusão causada por esse  jogo “é pegadinha do ego” que parece que ocupa demais minha mente é apenas meu medo de errar?
+
+￼
+
+O que sou eu?
+Quem é Deus?
+O que é o mundo?
+
+Impermanência mas constancia: tudo começa e tem fim mas nada desaparece. A árvore cresce e morre mas volta a ser terra.
+
+
+Testemunha (“Sakshi”)
+
+Não é tornar a vida espiritual, é trazer a espiritualidade pra vida
+
+
+Mundo é um fluxo de formas
+Existência: sat, existe antes do universo ter sido criado. É a causa do universo
+A causa do universo é onde o universo se dissolve
+
+A causa é o que vem antes e o que vem depois
+
+No meio do caminho…
+
+Não é possível ter imparcialidade sem a lei do karma.
+Tudo o que está acontecendo tem uma causa nas ações que ela mesma fez.
+
+Karma de todos os seres são um só
+
+Vendo um filme inteiro não há karma, a conta fecha. O que vemos como karma é esse desdobramento pois não vemos o filme todo.
+
+A consciência é a existência que é Deus.
+
+
 2026-08-06
 Reclamar não traz crescimento
 
@@ -9,7 +95,12 @@ Tenho necessidade de infantilização. Fazer piada o tempo todo
 
 Pra ter a capacidade de escutar Vedanta é preciso ter um “mérito sobrenatural”
 
-Ati shaia puniam
+Agente Shri Shankara: O termo é Atishaya Puṇya (अतिशय पुण्य).
+
+Puṇya é mérito, o resultado de ação boa acumulada. Atishaya quer dizer extraordinário, fora do comum. Juntos: mérito sobrenatural.
+
+O ponto que o Acharya fez com isso: não basta decidir estudar Vedanta. Ele fala que é preciso ter vivido vidas de Dharma extremo em condições adversas, tipo manter compaixão depois de ter sido abusado, ou viver com honestidade dentro de uma família de mafiosos. Esse tipo de mérito é o que abre a porta pro estudo, não inteligência nem berço espiritual.
+
 
 
 2026-07-30
