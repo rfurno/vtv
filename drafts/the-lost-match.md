@@ -12,3 +12,7 @@ So I stayed on the bench and tried to come up with the ideia genial, the idea th
 I scribbled things that hardly fit together. Words looking for logic. Logic a nine-year-old did not have.
 
 The idea did not come. The whistle did. Recess was over. I had not played.
+
+# Bearings Lost
+
+On my way to class, I'd stop by a well known book store in São Paulo, "Livraria Cultura", renowned for a great variety of technical books from abroad. I'd pick the same book on fluid mechanics and read a little. It was expensive for my non-existent budget. But looking back I now realize it was out of my league. Perhaps the Math wasn't that difficult but I was lost. For one I had this tremendous opportunity of studying at a great University. But my job of doing something genial, doing something special, was getting in the way of actually studying.
