@@ -13,6 +13,9 @@ I scribbled things that hardly fit together. Words looking for logic. Logic a ni
 
 The idea did not come. The whistle did. Recess was over. I had not played.
 
-# Bearings Lost
+# Rumo Perdido (Bearings Lost)
 
-On my way to class, I'd stop by a well known book store in São Paulo, "Livraria Cultura", renowned for a great variety of technical books from abroad. I'd pick the same book on fluid mechanics and read a little. It was expensive for my non-existent budget. But looking back I now realize it was out of my league. Perhaps the Math wasn't that difficult but I was lost. For one I had this tremendous opportunity of studying at a great University. But my job of doing something genial, doing something special, was getting in the way of actually studying.
+On the way to class I would stop at Livraria Cultura. Same book every time, a fluid mechanics text from abroad. I read a few pages. It cost more than I had.
+
+Nobody was telling me to be special anymore. I was telling myself. The math was probably not the hard part. I was lost. I had the place at university, and the job was still running. It was getting in the way of studying the thing in front of me.
+
