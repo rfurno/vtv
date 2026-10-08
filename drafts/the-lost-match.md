@@ -13,7 +13,7 @@ I scribbled things that hardly fit together. Words looking for logic. Logic a ni
 
 The idea did not come. The whistle did. Recess was over. I had not played.
 
-# Rumo Perdido
+## Rumo Perdido
 
 On the way to class I would stop at Livraria Cultura. Same book every time, a fluid mechanics text from abroad. I read a few pages. It cost more than I had.
 
@@ -21,4 +21,14 @@ Nobody was telling me to be special anymore. I was telling myself. The math was 
 
 Perhaps it was arrogance. Ignorance would have been simpler. Arrogance got in the way of the assignments. It wanted leaps. I was barely walking.
 
-The missed turns throughout my life didn't become aparent until much later. I came during a session of deep meditation led by Acharya Jonas early in 2026. It was during that meditation that I met the little boy sitting by the concrete yard. That's when I asked him what he wanted. That's when I felt my own self standing up on that bench and going join the boys play before another whistle came.
+The picture of the boy did not come back for years. It returned in a deep meditation led by Acharya Jonas, early in 2026. I met the boy on that bench. I asked what he wanted. He wanted to play. I felt the urge to stand and join them before another whistle. He had not stood. Recess was already over.
+
+That urge made me look back through the last few decades for the same kind of miss. It did not surprise me to find them. Once I applied for a promotion to researcher. I was not ready. The learning was in the engineering post I had already been given. It hurt to sort those memories.
+
+## Bringing Home The Pollen
+
+In a Bhadrakali class later in 2026, Acharya Jonas compared the seeker to a bee. She looks for what is good and brings it home. Not the whole field. Today's pollen.
+
+Almost thirty years after those missed assignments, I had the alphabet in front of me. My Sanskrit instructor had prepared the work. No glorious path. The sheets, as given. I did them.
+
+Earlier this year my wife and I were in bed. She looked at me. She did not need me to come up with a better life. I asked. I listened. Time went. The conversation was the game. I didn't miss that one.
