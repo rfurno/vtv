@@ -20,3 +20,5 @@ On the way to class I would stop at Livraria Cultura. Same book every time, a fl
 Nobody was telling me to be special anymore. I was telling myself. The math was probably not the hard part. I was lost. I had the place at university, and the job was still running. It was getting in the way of studying the thing in front of me.
 
 Perhaps it was arrogance. Ignorance would have been simpler. Arrogance got in the way of the assignments. It wanted leaps. I was barely walking.
+
+The missed turns throughout my life didn't become aparent until much later. I came during a session of deep meditation led by Acharya Jonas early in 2026. It was during that meditation that I met the little boy sitting by the concrete yard. That's when I asked him what he wanted. That's when I felt my own self standing up on that bench and going join the boys play before another whistle came.
